@@ -31,3 +31,8 @@ http://www.openallurls.com
 http://www.openmultipleurl.com
 
 https://youtu.be/XRgr6tIjhNg MV
+
+
+http://www.vlive.tv/video/47521?channelCode=F5F127
+
+http://en.fetchfile.net/download-from-vlive/
