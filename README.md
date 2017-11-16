@@ -36,3 +36,10 @@ https://youtu.be/XRgr6tIjhNg MV
 http://www.vlive.tv/video/47521?channelCode=F5F127
 
 http://en.fetchfile.net/download-from-vlive/
+
+https://twitter.com/bn_drama/status/931115284206837760
+
+https://send-anywhere.com/web/link/3048RZSR  EP.3
+
+
+
