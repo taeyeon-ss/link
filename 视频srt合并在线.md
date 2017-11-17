@@ -7,4 +7,9 @@ http://www.lilsubs.com/# 可以下载1080p视频（直链）和字幕srt文件
 http://www.vlive.tv/video/48682 EP.33
 
 
+http://www.nikse.dk/SubtitleEdit/Online#     add subtitlee to vod can save it and grab screenshtooooo image
+http://subtitle-horse.com/
+
+
+
 
