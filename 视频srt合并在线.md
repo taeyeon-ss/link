@@ -23,3 +23,22 @@ http://www.croppola.com
 https://www168.lunapic.com/editor/?action=crop-video
 
 https://convert-video-online.com/
+
+http://www.videotoolbox.com/
+
+http://ytcropper.com/index.php
+
+https://123apps.com/
+
+https://rotatemyvideo.net/
+
+https://crop-video-online.com/
+
+https://crop-video-online.com/
+
+
+
+http://web.photodex.com/create/?home   slideshow online creator
+
+
+
