@@ -13,3 +13,10 @@ http://subtitle-horse.com/ use SPACE to grab screenshot QQ shurufa
 https://ezgif.com/crop-video/ezgif-1-a3ce469458.mp4   crop video
 
 use gmail upload and preview video
+
+
+https://video-crop.com/
+
+http://www.croppola.com
+
+https://www168.lunapic.com/editor/?action=crop-video
