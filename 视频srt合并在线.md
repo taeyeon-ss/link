@@ -11,5 +11,5 @@ http://www.nikse.dk/SubtitleEdit/Online#     add subtitlee to vod can save it an
 http://subtitle-horse.com/
 
 
-
+https://ezgif.com/crop-video/ezgif-1-a3ce469458.mp4   crop video
 
