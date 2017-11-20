@@ -34,6 +34,8 @@ http://ytcropper.com/index.php
 
 https://123apps.com/
 
+http://www.vlive.tv/video/49093?channelCode=F5F127
+
 https://rotatemyvideo.net/
 
 https://crop-video-online.com/
