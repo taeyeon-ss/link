@@ -19,7 +19,6 @@ https://ezgif.com/crop-video/ezgif-1-a3ce469458.mp4   crop video
 use gmail upload and preview video
 google cloud ssh df -h
 
-
 https://video-crop.com/
 
 http://www.croppola.com
@@ -40,11 +39,11 @@ https://rotatemyvideo.net/
 
 https://crop-video-online.com/
 
-https://crop-video-online.com/
-
-
-
 http://web.photodex.com/create/?home   slideshow online creator
 
+http://getsocialvids.com  Facebook Instagram video dler
 
+https://www.dredown.com/instagram FB, twitter, youtube, instagram...
+
+http://www.tube2gram.com
 
