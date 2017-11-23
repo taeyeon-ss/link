@@ -13,31 +13,7 @@ http://www.vlive.tv/video/48674/
 
 http://www.lilsubs.com/# 可以下载1080p视频（直链）和字幕srt文件
 
-https://twitter.com/Shaytyen_2/status/933637894199066629
-
-https://twitter.com/Shaytyen_2/status/933639511652802560
-
-https://twitter.com/Shaytyen_2/status/933639714376097792
-
-https://twitter.com/Shaytyen_2/status/933642304941785088
-
-https://twitter.com/Shaytyen_2/status/933642426719256578
-
-https://twitter.com/Shaytyen_2/status/933643408215646208
-
-https://twitter.com/Shaytyen_2/status/933643601203970048
-
-https://twitter.com/Shaytyen_2/status/933645640172634112
-
-https://twitter.com/Shaytyen_2/status/933645790341468160
-
-https://twitter.com/Shaytyen_2/status/933649544478208002
-
-https://twitter.com/Shaytyen_2/status/933649658110361600
-
-https://twitter.com/Shaytyen_2/status/933650531074977792
-
-https://twitter.com/Shaytyen_2/status/933650824151965697
+https://saveting.com/sites/twitter
 
 http://twdown.met
 
