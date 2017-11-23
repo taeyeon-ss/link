@@ -1,5 +1,7 @@
 https://console.cloud.google.com/cloudshell/editor?shellonly=true  Google Cloud Console
 
+http://www.videosmaller.com/
+
 (click bottom edge to input command)
 
 https://subtitleframe.com 在线添加字幕srt到video视频
