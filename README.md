@@ -1,3 +1,5 @@
+https://twitter.com/wjsn_robot/status/935006826076270592
+
 https://drive.google.com/file/d/1vxAcvDxwSgcdj6lUsBIq7b4viQ1mA5jz/view
 
 https://www.youtube.com/playlist?list=PL7d9SABxcP1LKLlJYwfbS9r_Zk7Y89XLK
