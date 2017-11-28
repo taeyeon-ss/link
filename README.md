@@ -1,3 +1,7 @@
+http://naver.me/575Syo2s
+
+http://m.tv.naver.com/v/2316786?spi_ref=m_tvcast_twitter 
+
 https://youtu.be/nKIHEQU3g1c  WEGL
 
 https://youtu.be/urwio2TvnqY  CSAT
