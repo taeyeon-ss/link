@@ -1,4 +1,6 @@
 
+http://tvtv24.com/view.php?id=intro&no=63&query=%EC%B2%A0%EB%B6%80%EC%A7%80%20%EB%B8%8C%EB%A1%9C%EB%A7%9D%EC%8A%A4%20%EC%9A%A9%EB%9D%A0%ED%81%B4%EB%9F%BD%20E04%20171128 EP.04
+
 http://m.tv.naver.com/v/2207067
 
 http://m.tv.naver.com/v/2345508  yugao
