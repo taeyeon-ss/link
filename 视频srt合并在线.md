@@ -1,3 +1,10 @@
+
+http://m.tv.naver.com/v/2207067
+
+http://m.tv.naver.com/v/2345508  yugao
+
+https://m.youtube.com/channel/UCK1sVuXaDvJeNwl9noN5nOA channel search
+
 https://youtu.be/lMbb-QXrbH4
 
 https://console.cloud.google.com/cloudshell/editor?shellonly=true  Google Cloud Console
