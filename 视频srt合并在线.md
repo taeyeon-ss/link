@@ -1,3 +1,7 @@
+http://gall.dcinside.com/board/view/?id=cosmicgirl&no=532656
+
+http://sendanywhe.re/6KQTW97J
+
 http://m.tv.naver.com/kbs.swan/home
 
 http://m.tv.naver.com/kbs.dragon/home
