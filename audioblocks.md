@@ -25,3 +25,7 @@ https://www.emp3dl.co/mp3/rick-and-morty-ost-complete-soundtrack.html
 https://www.emp3dl.co/mp3/rick-and-morty-ost-complete-soundtrack.html
 
 
+https://www.audioblocks.com/stock-audio/we-wish-you-a-merry-christmas-harp-version-146197.html
+
+
+https://www.audioblocks.com/stock-audio/i-heard-the-bells-on-christmas-day-piano-version-145198.html
