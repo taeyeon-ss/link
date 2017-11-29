@@ -1,3 +1,5 @@
+http://www.vlive.tv/video/50249?channelCode=F5F127  uzzu35
+
 http://naver.me/575Syo2s
 
 http://m.tv.naver.com/v/2316786?spi_ref=m_tvcast_twitter 
