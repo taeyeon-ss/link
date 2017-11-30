@@ -1,5 +1,7 @@
 https://chrome.google.com/webstore/detail/arc-welder/emfinbmielocnlhgmfkkmkngdoccbadn  ARC Welder
 
+chrome://apps/
+
 https://torbo.net/browsers
 
 https://send-anywhere.com/web/link/771OOH1P
