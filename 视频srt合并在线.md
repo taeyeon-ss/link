@@ -1,4 +1,4 @@
-https://twitter.com/Shaytyen_2/status/936179204927795201
+https://twitter.com/Shaytyen_2/status/936179204927795201  CUTTT
 
 http://channels.vlive.tv/F5F127/video
 
