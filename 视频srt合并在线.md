@@ -1,3 +1,7 @@
+https://send-anywhere.com/web/link/771OOH1P
+
+https://twitter.com/bn_drama/status/936187254547951616
+
 https://twitter.com/Shaytyen_2/status/936179204927795201  CUTTT
 
 http://channels.vlive.tv/F5F127/video
