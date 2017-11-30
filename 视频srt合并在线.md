@@ -2,6 +2,8 @@ https://chrome.google.com/webstore/detail/arc-welder/emfinbmielocnlhgmfkkmkngdoc
 
 chrome://apps/
 
+download a file aad open in the folder
+
 https://torbo.net/browsers
 
 https://send-anywhere.com/web/link/771OOH1P
