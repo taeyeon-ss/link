@@ -2,7 +2,13 @@ https://chrome.google.com/webstore/detail/arc-welder/emfinbmielocnlhgmfkkmkngdoc
 
 chrome://apps/
 
-download a file aad open in the folder
+download a file and open in the folder
+
+use keyboard "Enter" instead of double click
+
+use mozilla ftp to upload
+
+long press open with chrome browser
 
 https://torbo.net/browsers
 
