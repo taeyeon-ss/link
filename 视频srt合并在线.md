@@ -1,16 +1,12 @@
+http://www.vlive.tv/video/49581/ 看SHOW第五回
+
+http://www.lilsubs.com/# 可以下载1080p视频（直链）
+
 https://douploads.com/sfvc8pt15nw1 一部
 
 https://douploads.com/t3j8wewij53v 二部
 
 https://douploads.com/xcll69u9xkxf 三部
-
-https://www.instagram.com/p/BcFMM9DBn5u/
-
-https://www.instagram.com/p/BcFKRJnBu6w/  happy
-
-https://www.instagram.com/p/BcFA5zTlkAR/
-
-https://www.instagram.com/p/BcE-9dMB_em/
 
 http://gall.dcinside.com/board/view/?id=cosmicgirl&no=532656
 
