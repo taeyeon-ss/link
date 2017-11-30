@@ -1,3 +1,5 @@
+https://twitter.com/Shaytyen_2/status/936179204927795201
+
 http://channels.vlive.tv/F5F127/video
 
 http://www.vlive.tv/video/49581/ 看SHOW第五回
