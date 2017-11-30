@@ -1,3 +1,5 @@
+http://channels.vlive.tv/F5F127/video
+
 http://www.vlive.tv/video/49581/ 看SHOW第五回
 
 http://www.lilsubs.com/# 可以下载1080p视频（直链）
