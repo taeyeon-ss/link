@@ -1,3 +1,8 @@
+https://twitter.com/Shaytyen_2/status/936610962404020225
+https://twitter.com/Shaytyen_2/status/936609792495251456
+
+http://www.vlive.tv/video/50662?channelCode=F5F127 ep.06 yugao
+
 https://chrome.google.com/webstore/detail/arc-welder/emfinbmielocnlhgmfkkmkngdoccbadn  ARC Welder
 
 chrome://apps/
