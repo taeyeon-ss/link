@@ -1,3 +1,13 @@
+https://m.torrentkim12.com/bc.php?bo_table=torrent_variety&wr_id=851438&page=1
+
+magnet:?xt=urn:btih:af6d3a6295a6eaf5979ca1a6cbacc5c6aa894ee9
+
+magnet:?xt=urn:btih:4a1f17a8d171bdc6f8195962225b4e5ad8bc1d4c
+
+http://torrentog.com/bbs/board.php?bo_table=ent&wr_id=2342
+
+magnet:?xt=urn:btih:bb9607136d827b286f5db3ed2d77b869e60c4827
+
 http://m.dcinside.com/view.php?id=cosmicgirl&no=534366&page=1
 
 https://twitter.com/Shaytyen_2/status/936613960605769729  CUT3
