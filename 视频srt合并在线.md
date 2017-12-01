@@ -1,3 +1,5 @@
+https://twitter.com/c_a_leaf/status/936559386717184000
+
 https://m.torrentkim12.com/bc.php?bo_table=torrent_variety&wr_id=851438&page=1
 
 magnet:?xt=urn:btih:af6d3a6295a6eaf5979ca1a6cbacc5c6aa894ee9
