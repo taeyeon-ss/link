@@ -1,5 +1,7 @@
 http://torrent2magnet.com
 
+[红地毯](magnet:?xt=urn:btih:0f994a83de5a5f7d030d2e4a292d8015515a6700&dn=%5BMnet%5D+2017+MAMA+Red+Carpet+in+Hong+Kong.E01.171201.720p-NEXT.mp4)
+
 magnet:?xt=urn:btih:0f994a83de5a5f7d030d2e4a292d8015515a6700&dn=%5BMnet%5D+2017+MAMA+Red+Carpet+in+Hong+Kong.E01.171201.720p-NEXT.mp4
 
 magnet:?xt=urn:btih:bb9607136d827b286f5db3ed2d77b869e60c4827&dn=%5BMnet%5D+2017+Mnet+Asian+Music+Awards+in+Hong+Kong.E01.171201.720p-NEXT.mp4
