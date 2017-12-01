@@ -1,5 +1,10 @@
-https://twitter.com/Shaytyen_2/status/936610962404020225
-https://twitter.com/Shaytyen_2/status/936609792495251456
+http://m.dcinside.com/view.php?id=cosmicgirl&no=534366&page=1
+
+https://twitter.com/Shaytyen_2/status/936613960605769729  CUT3
+
+https://twitter.com/Shaytyen_2/status/936610962404020225 CUT2
+
+https://twitter.com/Shaytyen_2/status/936609792495251456 CUT1
 
 http://www.vlive.tv/video/50662?channelCode=F5F127 ep.06 yugao
 
