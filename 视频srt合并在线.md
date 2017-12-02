@@ -6,31 +6,7 @@ http://www.dailymotion.com/embed/video/k778nuwOXxQsAXpMaOQ mmaa in jiaopeng 2017
 
 https://openload.co/f/kStnjPmXfMQ mmaa in kh 2017
 
-https://openload.co/f/ZttNS9npits
-
-https://openload.co/f/NMy22CGggOw
-
-https://openload.co/f/o8GJgHTpgPI
-
-https://openload.co/f/GWnyEVaivIU
-
-https://openload.co/f/6ZJ5nWj19Fw
-
-https://openload.co/f/d75F1INrKYo
-
-https://openload.co/f/RnAE0YdRd-k
-
-https://openload.co/f/MCp9BwDnxvk
-
 http://torrent2magnet.com
-
-[红地毯](magnet:?xt=urn:btih:0f994a83de5a5f7d030d2e4a292d8015515a6700&dn=%5BMnet%5D+2017+MAMA+Red+Carpet+in+Hong+Kong.E01.171201.720p-NEXT.mp4)
-
-magnet:?xt=urn:btih:0f994a83de5a5f7d030d2e4a292d8015515a6700&dn=%5BMnet%5D+2017+MAMA+Red+Carpet+in+Hong+Kong.E01.171201.720p-NEXT.mp4
-
-magnet:?xt=urn:btih:bb9607136d827b286f5db3ed2d77b869e60c4827&dn=%5BMnet%5D+2017+Mnet+Asian+Music+Awards+in+Hong+Kong.E01.171201.720p-NEXT.mp4
-
-magnet:?xt=urn:btih:4a1f17a8d171bdc6f8195962225b4e5ad8bc1d4c&dn=%5BMnet%5D+2017+Mnet+Asian+Music+Awards+in+Hong+Kong.E02.171201.720p-NEXT.mp4
 
 https://twitter.com/c_a_leaf/status/936559386717184000
 
@@ -69,10 +45,6 @@ long press open with chrome browser
 https://torbo.net/browsers
 
 https://send-anywhere.com/web/link/771OOH1P
-
-https://twitter.com/bn_drama/status/936187254547951616
-
-https://twitter.com/Shaytyen_2/status/936179204927795201  CUTTT
 
 http://channels.vlive.tv/F5F127/video
 
