@@ -1,6 +1,24 @@
-http://www.vlive.tv/video/49581/ 看SHOW第五回
+https://www.seedr.cc/?r=922972  iz@ php1
 
-http://www.vlive.tv/video/50249?channelCode=F5F127  uzzu35
+https://openload.co/account#remoteupload iz@ php1
+
+https://www.bytesloader.com
+
+http://www.checkshorturl.com/expand.php
+
+http://weblight.in
+
+http://torrent2magnet.com
+
+RABB~IT~TURBO~NET~BROWSERS~10minites
+
+Add to watch later, change to playlist
+
+http://www.dailymotion.com
+
+https://openload.co/f/kStnjPmXfMQ
+
+http://www.vlive.tv/video/49581/ 看SHOW第五回
 
 http://naver.me/575Syo2s
 
@@ -19,8 +37,6 @@ https://www.youtube.com/playlist?list=PL7d9SABxcP1LKLlJYwfbS9r_Zk7Y89XLK
 https://console.cloud.google.com/cloudshell/editor?shellonly=true
 
 https://youtu.be/kiZJF5EM_IQ   2018 SAT
-
-http://www.azsou.com
 
 https://youtu.be/LrswH28kSrs
 
@@ -51,9 +67,6 @@ http://www.openallurls.com
 http://www.openmultipleurl.com
 
 https://youtu.be/XRgr6tIjhNg MV
-
-
-http://www.vlive.tv/video/47521?channelCode=F5F127
 
 http://en.fetchfile.net/download-from-vlive/
 
