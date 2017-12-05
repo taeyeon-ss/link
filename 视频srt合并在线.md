@@ -1,3 +1,7 @@
+https://the.earth.li/~sgtatham/putty/0.70/w64/putty.exe
+
+https://www.chiark.greenend.org.uk/~sgtatham/putty/latest.html
+
 https://douploads.com/v9ml93q6hirq IDM
 
 https://douploads.com/55zmvy9da09e  winrar
