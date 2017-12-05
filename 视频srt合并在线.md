@@ -10,6 +10,8 @@ http://m.tv.naver.com/v/2369651 seola webdrama 12.04
 
 http://m.tv.naver.com/v/2246036 EP.01
 
+https://youtu.be/2-JKKbBKajQ EP.02
+
 
 http://m.vlive.tv/video/50909
 
