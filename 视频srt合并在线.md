@@ -1,3 +1,5 @@
+https://www.photoresizer.com/
+
 https://the.earth.li/~sgtatham/putty/latest/w64/puttygen.exe
 
 https://the.earth.li/~sgtatham/putty/0.70/w64/putty.exe
