@@ -1,3 +1,10 @@
+
+https://www.youtube.com/playlist?list=PL7d9SABxcP1KebjmkL4KOn1VRba4w0UIX
+
+http://www.downvids.net/download-youtube-playlist-videos
+
+http://www.majorshare.com/direct-video-downloader/
+
 https://streamango.com/v/d/dmqttoedodmdffoo~1512581890~216.66.0.0~QrI7aMKa/720
 
 http://ontvfree.blogspot.com/2017/12/e05171205.html?utm_source=feedburner&utm_medium=twitter&utm_campaign=Feed%3A+KoreanDramaFreeKoreanMoviesOnline+%28%EB%AC%B4%EB%A3%8C+TV+%EC%98%81%ED%99%94+%EB%8B%A4%EC%8B%9C%EB%B3%B4%EA%B8%B0%29
