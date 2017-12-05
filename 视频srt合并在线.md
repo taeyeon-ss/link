@@ -14,6 +14,28 @@ https://douploads.com/j53op0rfq3dc  VIDEO splitter
 
 https://douploads.com/x6rr45a2ht52 pavtube Viiiid edit
 
+https://twitter.com/Shaytyen_2/status/938055650860449793
+
+https://twitter.com/Shaytyen_2/status/938056725923377158
+
+https://twitter.com/Shaytyen_2/status/938057413969641474
+
+https://twitter.com/Shaytyen_2/status/938058358845620224
+
+https://twitter.com/Shaytyen_2/status/938059360189669378
+
+https://twitter.com/Shaytyen_2/status/938060635027288064
+
+https://twitter.com/Shaytyen_2/status/938060778296373250
+
+https://twitter.com/Shaytyen_2/status/938061535779233792
+
+https://twitter.com/Shaytyen_2/status/938063891497590784
+
+https://twitter.com/Shaytyen_2/status/938064078622285824
+
+https://twitter.com/Shaytyen_2
+
 http://m.tv.naver.com/v/2369651 seola webdrama 12.04
 
 http://m.tv.naver.com/v/2246036 EP.01
