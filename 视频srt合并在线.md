@@ -1,3 +1,7 @@
+http://videomultidownload.com/
+
+https://www.youtube.com/playlist?list=PLaq57sKEfJobyDSHffPyYKmUABAQYAvd4
+
 https://twitter.com/EXY_S2/status/938303232450945026
 
 http://videomultidownload.com/    IDM batch downloader
