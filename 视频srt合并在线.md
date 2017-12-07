@@ -1,3 +1,7 @@
+https://douploads.com/97k3wezfkmon YTD 585 working
+
+http://www18.zippyshare.com/pd/aH8tcSMn/26132/YTD%20Video%20Downloader%20PRO%205.8.5%20Full%20Crack.rar
+
 https://www.youtube.com/playlist?list=PLg7R5ECSElqkfsi_pfQTEKldPEKIKNKg4
 
 http://videomultidownload.com/
@@ -22,7 +26,9 @@ http://ontvfree.blogspot.com/2017/12/e05171205.html?utm_source=feedburner&utm_me
 
 https://www.photoresizer.com/
 
-https://the.earth.li/~sgtatham/putty/latest/w64/puttygen.exe
+h
+
+ttps://the.earth.li/~sgtatham/putty/latest/w64/puttygen.exe
 
 https://the.earth.li/~sgtatham/putty/0.70/w64/putty.exe
 
