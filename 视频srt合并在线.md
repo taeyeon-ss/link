@@ -1,10 +1,8 @@
-https://hdconvert.com/#none
+vlc快速转换视频
 
 https://torrentpong.com/bbs/board.php?bo_table=ent&wr_id=3037
 
 https://www.google.com.hk/search?safe=strict&source=hp&ei=tNMqWu7lKYSW8wWKvp6QCA&q=발레교습소+백조클럽.E03.171208.HDTV.H264.720P&oq=발레교습소+백조클럽.E03.171208.HDTV.H264.720P&gs_l=mobile-gws-hp.12...909.909.0.1818.2.1.0.1.1.0.200.200.2-1.1.0....0...1c.2.64.mobile-gws-hp..0.1.53.3..41.0.DHpEssINLjM
-
-https://www.google.com.hk/search?q=torrent+to+magnet+convert+online&safe=strict&prmd=vni&ei=I9UqWuPyHYH28gXAm4qoBQ&start=10&sa=N&biw=360&bih=615&dpr=2
 
 http://m.dcinside.com/view.php?id=cosmicgirl&no=537405&page=1
 
@@ -16,11 +14,7 @@ https://userscloud.com/pjrkxjgv51oq
 
 https://www.instagram.com/p/BcZNIhdlkMF/?hl=en&taken-by=wjsn_cosmic
 
-https://www.10insta.com/download/#grid-gallery [instagram pics multi download][working]
-
-https://www.abyssmedia.com/youtubedownloader/
-
-http://www.flvto.biz/youtube-downloader/
+https://www.10insta.com/download/#grid-gallery [instagram pics multi批量下载 download][working]
 
 https://youtu.be/AX8kl3jRz2s 韩国实况主偶遇宇宙少女
 
@@ -32,17 +26,15 @@ https://douploads.com/97k3wezfkmon YTD 585 working
 
 http://www18.zippyshare.com/pd/aH8tcSMn/26132/YTD%20Video%20Downloader%20PRO%205.8.5%20Full%20Crack.rar
 
-https://www.youtube.com/playlist?list=PLg7R5ECSElqkfsi_pfQTEKldPEKIKNKg4
+https://www.youtube.com/playlist?list=PLg7R5ECSElqkfsi_pfQTEKldPEKIKNKg4  【The Gsd】
 
-http://videomultidownload.com/
+http://videomultidownload.com/  【油管批量下载, by IDM batch download】
 
 https://www.youtube.com/playlist?list=PLaq57sKEfJobyDSHffPyYKmUABAQYAvd4
 
 https://twitter.com/EXY_S2/status/938303232450945026
 
-http://videomultidownload.com/    IDM batch downloader
-
-https://douploads.com/tt7r374ol9b5 DVD youtube batch downloader
+https://douploads.com/tt7r374ol9b5 DVD youtube batch downloader 【速度较慢】【用openload.co或sendit.cloud】
 
 https://www.youtube.com/playlist?list=PL7d9SABxcP1KebjmkL4KOn1VRba4w0UIX
 
@@ -56,21 +48,19 @@ http://ontvfree.blogspot.com/2017/12/e05171205.html?utm_source=feedburner&utm_me
 
 https://www.photoresizer.com/
 
-h
-
-ttps://the.earth.li/~sgtatham/putty/latest/w64/puttygen.exe
+https://the.earth.li/~sgtatham/putty/latest/w64/puttygen.exe
 
 https://the.earth.li/~sgtatham/putty/0.70/w64/putty.exe
 
 https://www.chiark.greenend.org.uk/~sgtatham/putty/latest.html
 
-https://douploads.com/v9ml93q6hirq IDM
+https://douploads.com/v9ml93q6hirq  IDM
 
 https://douploads.com/55zmvy9da09e  winrar
 
 https://douploads.com/j53op0rfq3dc  VIDEO splitter
 
-https://douploads.com/x6rr45a2ht52 pavtube Viiiid edit
+https://douploads.com/x6rr45a2ht52  pavtube Video edit add sub.srt
 
 https://twitter.com/Shaytyen_2/status/938055650860449793
 
@@ -86,11 +76,6 @@ https://twitter.com/Shaytyen_2/status/938060635027288064
 
 https://twitter.com/Shaytyen_2/status/938060778296373250
 
-https://twitter.com/Shaytyen_2/status/938061535779233792
-
-https://twitter.com/Shaytyen_2/status/938063891497590784
-
-https://twitter.com/Shaytyen_2/status/938064078622285824
 
 https://twitter.com/Shaytyen_2
 
