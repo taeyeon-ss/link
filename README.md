@@ -1,3 +1,7 @@
+https://mail.python.org/pipermail/python-list/ 邮件列表
+
+https://turbo.net/browsers
+
 https://www.seedr.cc/?r=922972  iz@ php1
 
 https://openload.co/account#remoteupload iz@ php1
