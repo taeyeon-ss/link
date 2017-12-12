@@ -1,3 +1,11 @@
+https://www.fosshub.com/Avidemux.html/avidemux_2.7.0_win64.exe
+
+http://avidemux.sourceforge.net/download.html
+
+https://www.youtube.com/redirect?q=http%3A%2F%2Favidemux.sourceforge.net%2Fdownload.html&v=TCh0HTh4uTg&redir_token=UI1ASoWwLxbLIlcFRV0vCF6h-vx8MTUxMzE5MTQ4OUAxNTEzMTA1MDg5&event=video_description
+
+https://www.youtube.com/watch?v=TCh0HTh4uTg
+
 https://torrentpong.com/bbs/board.php?bo_table=ent
 
 http://ontvfree.blogspot.tw/2017/12/e06171212_19.html?m=1  E.06 171212 cx dragon
