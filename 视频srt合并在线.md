@@ -1,3 +1,5 @@
+http://ontvfree.blogspot.tw/2017/12/e06171212_19.html?m=1  E.06 171212 cx dragon
+
 https://youtu.be/vIXppmXefyE tutorial
 
 https://www.homeatcloud.com/vps
