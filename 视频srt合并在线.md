@@ -1,3 +1,6 @@
+
+https://pcrookie.com/?p=917 avidmux tutorial best cut video editor
+ 
 https://www.fosshub.com/Avidemux.html/avidemux_2.7.0_win64.exe
 
 http://avidemux.sourceforge.net/download.html
