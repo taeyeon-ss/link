@@ -4,6 +4,8 @@ https://codeanywhere.com/features/editor c9.io codenvy, dply.co, google cloud co
 
 https://storiesig.com/stories/theblingmagazine  down insta story
 
+http://www.youtubescreenshot.com/
+
 https://addons.mozilla.org/en-US/firefox/addon/auto-mute/  Mute firefox new tabs
 
 https://addons.mozilla.org/en-US/firefox/addon/dynamic-zoom/  Firefox Dynamic Zoom
