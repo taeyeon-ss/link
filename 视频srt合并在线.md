@@ -1,3 +1,5 @@
+http://www.vlive.tv/video/52115?channelCode=F5F127 Seola
+
 http://www.vlive.tv/video/51427 第七集
 
 https://youtu.be/k_sgGlzUPPo
