@@ -2,7 +2,7 @@ https://www.pythonanywhere.com/ 自动化zq, automate bash terminal work flow, n
 
 https://codeanywhere.com/features/editor c9.io codenvy, dply.co, google cloud console editor 
 
-
+https://storiesig.com/stories/theblingmagazine  down insta story
 
 https://addons.mozilla.org/en-US/firefox/addon/auto-mute/  Mute firefox new tabs
 
