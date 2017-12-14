@@ -1,3 +1,5 @@
+https://addons.mozilla.org/en-US/firefox/addon/dynamic-zoom/  Firefox Dynamic Zoom
+
 https://mail.python.org/pipermail/python-list/ 邮件列表
 
 https://turbo.net/browsers
