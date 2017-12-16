@@ -1,3 +1,8 @@
+
+
+
+https://chrome.google.com/webstore/detail/izoom/iheccogfcpjfjbnlohnlgdljaefpgaoi/related?hl=en
+
 https://qsandbox.com/tools/private-public-keygen [generate SSH pub/priv key pair]
 
 https://www.pythonanywhere.com/ 自动化zq, automate bash terminal work flow, nohup XXX &  , tail nohup.out  pylo.co
