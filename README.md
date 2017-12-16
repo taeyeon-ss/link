@@ -1,5 +1,5 @@
 
-
+https://www.photoresizer.com/
 
 https://chrome.google.com/webstore/detail/izoom/iheccogfcpjfjbnlohnlgdljaefpgaoi/related?hl=en
 
