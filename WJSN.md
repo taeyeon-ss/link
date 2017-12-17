@@ -1,4 +1,10 @@
-https://www.youtube.com/watch?v=LlOExWF-rBU
+https://youtu.be/_VA6FEdhk3E
+
+cx cut
+
+http://sendanywhe.re/OU6K6WOK KBS CUT
+
+https://www.youtube.com/watch?v=LlOExWF-rBU  FULL
 
 http://alcdn.hls.xiaoka.tv/20171217/511/c7d/InNlzYPS8_6VUS9x/index.m3u8
 
