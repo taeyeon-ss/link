@@ -1,3 +1,5 @@
+http://alcdn.hls.xiaoka.tv/20171217/511/c7d/InNlzYPS8_6VUS9x/index.m3u8
+
 http://m.yizhibo.com/l/InNlzYPS8_6VUS9x.html
 
 https://devimages.apple.com.edgekey.net/resources/http-streaming/examples/bipbop_4x3/bipbop_4x3_variant.m3u8
