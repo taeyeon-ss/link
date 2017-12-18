@@ -1,3 +1,5 @@
+http://www.vlive.tv/video/52500 [루다] 루다의 키 쑥쑥 스트레칭 교실🙆🏻 Ep.01
+
 https://youtu.be/_VA6FEdhk3E
 
 cx cut
