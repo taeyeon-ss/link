@@ -1,3 +1,9 @@
+http://m.dcinside.com/view.php?id=cosmicgirl&no=542007&page=6  YYJ
+
+http://m.dcinside.com/view.php?id=cosmicgirl&no=542106&page=2
+
+http://m.dcinside.com/view.php?id=cosmicgirl&no=541985&page=7 WJSN
+
 http://www.vlive.tv/video/52500 [루다] 루다의 키 쑥쑥 스트레칭 교실🙆🏻 Ep.01
 
 https://youtu.be/_VA6FEdhk3E
@@ -6,7 +12,7 @@ cx cut
 
 http://sendanywhe.re/OU6K6WOK KBS CUT
 
-https://www.youtube.com/watch?v=LlOExWF-rBU  FULL
+https://www.youtube.com/watch?v=LlOExWF-rBU  FULLYYJ
 
 http://alcdn.hls.xiaoka.tv/20171217/511/c7d/InNlzYPS8_6VUS9x/index.m3u8
 
