@@ -1,6 +1,6 @@
 http://m.dcinside.com/view.php?id=cosmicgirl&no=542831&page=3  
 
-
+http://m.dcinside.com/view.php?id=cosmicgirl&no=542611&page=8
 
 http://m.dcinside.com/view.php?id=cosmicgirl&no=542007&page=6  YYJ
 
