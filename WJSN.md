@@ -1,4 +1,6 @@
 
+http://m.tv.naver.com/v/2453896?spi_ref=m_tvcast_twitter 苞娜G-50直拍 Fury
+
 http://naver.me/GCYF6W0C
 
 http://naver.me/51Oen6yg
