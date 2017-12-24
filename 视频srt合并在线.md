@@ -1,3 +1,10 @@
+
+magnet:?xt=urn:btih:41574B0A4785765D0CBEA2A43EA555C270E938A4
+
+https://oload.tv/f/2CaEhWH4J68/%ED%99%94%EC%9C%A0%EA%B8%B0.E01.171223.450p.mp4
+
+http://ontvfree.blogspot.tw/2017/12/e01171223.html?m=1 花游纪ep.01
+
 https://streamango.com/v/d/cralopnsdodmkdst~1513441104~112.105.0.0~4gxrgxVI/720
 
 http://ontvfree.blogspot.tw/2017/12/e04171215.html?m=1 EP.04
