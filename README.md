@@ -3,6 +3,8 @@ https://www.rapidvideo.com/?c=upload  Auto 1920x1080 => 1280x720 convert fastest
 
 hao/p1/izhu@
 
+https://github.com/gxvv/ex-baiduyunpan/ 云盘得直接解析
+
 https://online-video-cutter.com/
 
 
