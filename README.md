@@ -38,6 +38,8 @@ https://storiesig.com/stories/theblingmagazine  down insta story
 
 http://www.youtubescreenshot.com/
 
+https://lihkg.com/thread/515627/page/4
+
 https://addons.mozilla.org/en-US/firefox/addon/auto-mute/  Mute firefox new tabs
 
 https://addons.mozilla.org/en-US/firefox/addon/dynamic-zoom/  Firefox Dynamic Zoom
