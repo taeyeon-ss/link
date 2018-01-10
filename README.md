@@ -1,3 +1,9 @@
+
+
+https://addons.mozilla.org/zh-TW/firefox/addon/unblock-youku-firefox/
+
+https://chrome.google.com/webstore/detail/unblock-boundaryunblock-y/keffjnnjjpeemgobbiemjhpdmbbkedmh?hl=zh-TW
+
 https://www.sordum.org/files/downloads.php?dns-jumper
 
 https://www.sordum.org/7952/dns-jumper-v2-1/
