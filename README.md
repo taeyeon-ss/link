@@ -2,6 +2,9 @@ https://www.sordum.org/files/downloads.php?dns-jumper
 
 https://www.sordum.org/7952/dns-jumper-v2-1/
 
+
+http://changedns.how/
+
 https://www.rapidvideo.com/?c=upload  Auto 1920x1080 => 1280x720 convert fastest // REMOTE URL UPLOAD
 
 hao/p1/izhu@
