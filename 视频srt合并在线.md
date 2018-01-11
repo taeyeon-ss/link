@@ -2,6 +2,8 @@ http://www.iqiyi.com/v_19rrexm33k.html oxlxs chengxiao chuchang angel
 
 https://youtu.be/OWg3jHKxlcw
 
+https://openload.co/f/-nFQlrXBGE8/180111_k-star.%EC%8B%9D%EC%8B%A0%EB%A1%9C%EB%93%9C3.E10.IPTV.1080i.H264.AC3-%EC%9A%B0%EC%A5%AC%EC%AD%88%EA%BE%B8%EB%AF%B8.ts.zip%3Fst%3DuqAIVwKSx0CFyceLHtH9nQ%26e%3D1516129370_%28convert-video-online.com%29.mp4  Eunseo road3
+
 http://sendanywhe.re/U1GQLFKZ KBS2 wjsn Cut
 
 http://m.tw.iqiyi.com/search.html?source=input&vfrm=2-3-0-1&key=偶像练习生
