@@ -1,3 +1,9 @@
+
+
+
+http://tw.iqiyi.com/v_19rrfnx3s4.html#vfrm=2-3-0-1  偶像练习生：2018-01-19期 第1期 张艺兴升级严厉製作人
+
+
 https://m.weibo.cn/5612234891/4197922276699374
 
 http://tv.naver.com/vendengtv  P1 170226 Exy ～ P60 170218 bona
