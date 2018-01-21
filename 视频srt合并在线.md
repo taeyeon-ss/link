@@ -1,3 +1,4 @@
+https://youtu.be/j7Qbx4zgRfI  【LAY/張藝興】 Idol Producer 2018 Unseen scene EP01 偶像新番
 
 http://www.iqiyi.com/v_19rrfndqsk.html  【幕后花絮】
 
