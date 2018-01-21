@@ -1,3 +1,7 @@
+https://m.weibo.cn/6382798471/4198678069485995  [cp]#偶像练习生#片场里乱入的虫子引发的“大战”[哈哈]
+欧阳靖导师@欧阳靖MCjin 直接下场加入“人虫混战”不要太可爱呀#欧阳靖偶像练习生#
+http://t.cn/RQWzgHy ​​​[/cp]
+
 https://youtu.be/j7Qbx4zgRfI  【LAY/張藝興】 Idol Producer 2018 Unseen scene EP01 偶像新番
 
 http://www.iqiyi.com/v_19rrfndqsk.html  【幕后花絮】
