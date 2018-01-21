@@ -1,4 +1,6 @@
 
+http://www.iqiyi.com/v_19rrfndqsk.html  【幕后花絮】
+
 http://www.iqiyi.com/v_19rrfm7lkg.html  《偶像练习生》幕后花絮：制作人导师首次会面大谈创作
 
 http://tw.iqiyi.com/v_19rrfnx3s4.html#vfrm=2-3-0-1  偶像练习生：2018-01-19期 第1期 张艺兴升级严厉製作人
