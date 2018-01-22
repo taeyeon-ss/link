@@ -1,4 +1,4 @@
-
+https://youtu.be/AVkKXz5FXVs  《偶像练习生》真实调查 范丞丞陈立农最具人气
 
 https://youtu.be/3QlKnSQhhZU  《偶像练习生》韩文字幕 2018年1月20日发布[Broadcasting]20180119 우상연습생 E01[한글자막]
 
