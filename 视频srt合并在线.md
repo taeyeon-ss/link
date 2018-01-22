@@ -1,3 +1,7 @@
+https://youtu.be/XGFgtLz7S2I  【预告片】《偶像练习生》第二期预告
+
+2018年1月21日发布等级表演精彩继续，指导课堂导师严厉，谁能获得导师们的赞许？1月26日周五晚8点来爱奇艺寻找答案！ 
+
 https://youtu.be/AVkKXz5FXVs  《偶像练习生》真实调查 范丞丞陈立农最具人气
 
 https://youtu.be/3QlKnSQhhZU  《偶像练习生》韩文字幕 2018年1月20日发布[Broadcasting]20180119 우상연습생 E01[한글자막]
