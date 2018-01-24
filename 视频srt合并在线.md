@@ -1,3 +1,16 @@
+
+https://youtu.be/q4kpfWA1mZ4  第26届首尔歌谣大赏   170119 제26회 서울가요대상(SMA) 우주소녀 가수석
+
+https://m.youtube.com/watch?v=MfCqNY1aOWI  3:02 [4K] 180113 우주소녀 미기 (WJSN MeiQi) - HAPPY - 평창 송화봉송 축하무대 직캠 [멀티캠/MULTICAM]
+
+https://m.youtube.com/watch?v=J6KX6P3MgOk  3:43 [4K] 180113 우주소녀 미기 (WJSN MeiQi) - 비밀이야 (Secret) - 평창 송화봉송 축하무대 직캠 [멀티캠/MULTICAM]
+SHINING STAR
+226次观看
+
+
+
+——♥——
+
 https://youtu.be/uuOJDXIIfag  《偶像练习生》20180126预告 李荣浩终等到最强vocal 再评定大批降级
 
 https://youtu.be/XGFgtLz7S2I  【预告片】《偶像练习生》第二期预告
