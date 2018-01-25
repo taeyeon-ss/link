@@ -1,4 +1,7 @@
 
+
+http://www.iqiyi.com/v_19rrfjq7wg.html 程潇练习室练习芭蕾 姿态优美美艳动人
+
 https://youtu.be/q4kpfWA1mZ4  第26届首尔歌谣大赏   170119 제26회 서울가요대상(SMA) 우주소녀 가수석
 
 https://m.youtube.com/watch?v=MfCqNY1aOWI  3:02 [4K] 180113 우주소녀 미기 (WJSN MeiQi) - HAPPY - 평창 송화봉송 축하무대 직캠 [멀티캠/MULTICAM]
