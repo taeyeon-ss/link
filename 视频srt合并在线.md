@@ -1,3 +1,11 @@
+https://twitter.com/mc0n/status/957882880792805377  
+
+因为我叫Lay
+
+张PD凌晨4点多的冷幽默
+
+——♥——
+
 http://www.bilibili.com/video/av18913798  20180129 E30 宇宙少女 同床异梦2 你是我的命运Cut[中字][20180129]
 
 【同床异梦2】
