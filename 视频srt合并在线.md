@@ -1,4 +1,6 @@
 
+https://twitter.com/whowill1230/status/958681102192803840  多荣 k.will演唱会
+
 https://youtu.be/4Tri8lw_px8  巴西 葡萄牙文版
 
 https://youtu.be/TgF415TSqzs  2018 SEASON GREETING DVD ENG SUB
