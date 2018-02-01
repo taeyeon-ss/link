@@ -1,4 +1,6 @@
 
+https://youtu.be/4Tri8lw_px8  巴西 葡萄牙文版
+
 https://youtu.be/TgF415TSqzs  2018 SEASON GREETING DVD ENG SUB
 
 ——♥——
