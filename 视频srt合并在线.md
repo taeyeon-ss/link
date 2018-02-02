@@ -1,4 +1,6 @@
 
+https://youtu.be/FFZREHZMwyA
+
 https://youtu.be/HtPfDLIjyIw  Idol producer Ep 3《偶像练习生》第3期 20180202 練習生再評級惹張藝興發火
 
 ——♥——
