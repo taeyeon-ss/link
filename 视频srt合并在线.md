@@ -1,4 +1,8 @@
 
+https://youtu.be/HtPfDLIjyIw  Idol producer Ep 3《偶像练习生》第3期 20180202 練習生再評級惹張藝興發火
+
+——♥——
+
 https://twitter.com/whowill1230/status/958681102192803840  多荣 k.will演唱会
 
 https://youtu.be/4Tri8lw_px8  巴西 葡萄牙文版
