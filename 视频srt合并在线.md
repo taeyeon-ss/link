@@ -1,3 +1,6 @@
+https://youtu.be/uGWMKB9QpKQ  [4K] 180203 청하(CHUNGHA) 팬미팅 청하 유연정 토크 풀직캠 Fullfancam
+
+——♥——
 
 https://youtu.be/FFZREHZMwyA
 
