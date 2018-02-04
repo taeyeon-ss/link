@@ -1,3 +1,5 @@
+https://m.facebook.com/story.php?story_fbid=1931577343539562&id=118052958225352
+
 https://youtu.be/Y_4DOTilBOk  [4K] 180203 김청하(Chungha) 청하&연정 토크 4K Fancam by I.CSC.I @청하 팬미팅
 
 https://youtu.be/uGWMKB9QpKQ  [4K] 180203 청하(CHUNGHA) 팬미팅 청하 유연정 토크 풀직캠 Fullfancam
