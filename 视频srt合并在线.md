@@ -1,3 +1,7 @@
+
+
+https://filmora.wondershare.com/avidemux/how-to-make-timelapse-with-avidemux.html
+
 https://m.facebook.com/story.php?story_fbid=1931577343539562&id=118052958225352
 
 https://youtu.be/Y_4DOTilBOk  [4K] 180203 김청하(Chungha) 청하&연정 토크 4K Fancam by I.CSC.I @청하 팬미팅
