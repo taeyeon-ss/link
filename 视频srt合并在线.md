@@ -1,3 +1,6 @@
+
+http://tv.naver.com/mbc.idolOlympic  MBC
+
 https://youtu.be/WTbptXniAWs 宇宙少女回归预告
 
 https://filmora.wondershare.com/avidemux/how-to-make-timelapse-with-avidemux.html
