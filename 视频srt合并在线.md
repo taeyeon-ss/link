@@ -1,6 +1,10 @@
 
 http://tv.naver.com/mbc.idolOlympic  MBC
 
+<#설특집2018아육대> #양궁 #에어로빅 #리듬체조 사전 연습영상 하이라이트 공개✨ 본방송전까지 하루에 하나씩 공개되는 연습 영상, 놓치지 마세요❤️ 👇🏻http://tv.naver.com/v/2663626  #뉴이스트W #트와이스 #빅스 #여자친구 #세븐틴 #우주소녀 #더보이즈 #CLC
+
+https://twitter.com/withMBC/status/960431582170333184
+
 https://youtu.be/WTbptXniAWs 宇宙少女回归预告
 
 https://filmora.wondershare.com/avidemux/how-to-make-timelapse-with-avidemux.html
