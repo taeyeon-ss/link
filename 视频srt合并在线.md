@@ -1,4 +1,7 @@
 
+
+http://krcom.cn/6382798471/episodes/2358773:babf8b5d56a5254237c71519091664e2  酷燃视频
+
 http://www.imbc.com/broad/tv/ent/event/2018newyearidol/photo/photo1.html
 
 http://tv.naver.com/mbc.idolOlympic  MBC
