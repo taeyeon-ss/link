@@ -1,3 +1,5 @@
+https://addons.mozilla.org/en-US/firefox/addon/uaswitcher/  Firefox User Agent switcher iqiyi online do
+
 https://chrome.google.com/webstore/detail/baidudl/mccebkegnopjehbdbjbepjkoefnlkhef  baidudl chrome extension
 
 https://filmora.wondershare.com  【instant video cutter】
