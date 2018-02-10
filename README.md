@@ -1,3 +1,5 @@
+http://savevideo.me/  [magisto video online der]
+
 https://www.cpclips.com/#  online downloader
 
 https://www.parsevideo.com/bilibili/ bilibili video online der
