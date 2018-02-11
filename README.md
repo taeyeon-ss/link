@@ -1,5 +1,7 @@
 http://savevideo.me/  [magisto video online der]
 
+http://getmd5checker.com/download  MD5 checksum checker
+
 https://www.cpclips.com/#  online downloader
 
 https://www.parsevideo.com/bilibili/ bilibili video online der
