@@ -1,3 +1,7 @@
+https://www.imgonline.com.ua/eng/combine-two-images-into-one.php
+
+https://www.imgonline.com.ua/eng/resize-image-result.php
+
 http://savevideo.me/  [magisto video online der]
 
 http://getmd5checker.com/download  MD5 checksum checker
