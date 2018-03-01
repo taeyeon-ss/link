@@ -1,4 +1,7 @@
-
+180301 KBS媒体中心签售预览 🙈
+#우주소녀 #루다
+#WJSN #LUDA
+@WJSN_Cosmic https://t.co/mAVw6ofrGg
 
 http://www.idolchamp.com/app_proxy.html?type=vote&id=vote_658_489
 
