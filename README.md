@@ -1,3 +1,7 @@
+
+
+http://www.idolchamp.com/app_proxy.html?type=vote&id=vote_658_489
+
 newipnow.com
 
 https://play.google.com/store/apps/details?id=com.nwz.ichampclient&referrer=utm_source%3Dgoogle%26utm_medium%3Dorganic%26utm_term%3Didol+champion+apk&pcampaignid=APPU_1_K0WXWqvEIaOYjwTX4r6oDg
