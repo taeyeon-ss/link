@@ -3,6 +3,9 @@
 #WJSN #LUDA
 @WJSN_Cosmic https://t.co/mAVw6ofrGg
 
+
+https://m.mwave.me/cn/mcountdown/prevoting/vote?
+
 http://www.idolchamp.com/app_proxy.html?type=vote&id=vote_658_489
 
 newipnow.com
