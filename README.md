@@ -1,4 +1,9 @@
 
+
+https://testingbot.com/members/lab/new
+
+https://testingbot.com/users/sign_up
+
 https://smartbear.com/product/testcomplete/cross-browser-testing-tool/
 
 https://www.browseemall.com/Buy 14days trial
