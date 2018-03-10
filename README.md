@@ -1,4 +1,8 @@
 
+https://smartbear.com/product/testcomplete/cross-browser-testing-tool/
+
+https://www.browseemall.com/Buy 14days trial
+
 https://saucelabs.com/beta/manual
 
 https://saucelabs.com/cross-browser-testing-tutorial
