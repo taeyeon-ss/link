@@ -1,5 +1,5 @@
 
-
+https://saucelabs.com/beta/manual
 
 https://saucelabs.com/cross-browser-testing-tutorial
 
