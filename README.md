@@ -1,6 +1,6 @@
 
 
-
+https://www.youtube.com/watch?v=wu4fhBXWkAQ&list=PLhX2mddJUT20IE0pGvB4KrfA8wmj2WKvt
 
 http://pinetools.com/merge-images
 
