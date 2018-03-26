@@ -1,0 +1,15 @@
+https://twitter.com/seola_save/status/978217673493327874
+https://twitter.com/seola_save/status/978225282166345733
+https://twitter.com/seola_save/status/978225923697754112
+https://twitter.com/seola_save/status/978226971078377472
+https://twitter.com/seola_save/status/978227941938089985
+https://twitter.com/seola_save/status/978228466381238272
+https://twitter.com/seola_save/status/978229014388031488
+https://twitter.com/seola_save/status/978229346476335104
+https://twitter.com/seola_save/status/978230177237893120
+https://twitter.com/seola_save/status/978230567362686977
+https://twitter.com/seola_save/status/978231370039242752
+https://twitter.com/seola_save/status/978231727423303680
+https://twitter.com/seola_save/status/978232671506636801
+https://twitter.com/seola_save/status/978233263217979392
+https://twitter.com/seola_save/status/978233679024500737
