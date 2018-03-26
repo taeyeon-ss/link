@@ -1,3 +1,5 @@
+# outlook without verif
+https://signup.live.com/?bk=1475575685&cbcxt=mai&contextid=B3E104E71B6FE663&ct=1475575684&id=64855&lc=1033&lic=1&mkt=EN-US&rpsnv=13&rver=6.4.6456.0&uaid=636cb055d79b4037a30a8234d4ab4986&uiflavor=web&wa=wsignin1.0&wp=MBI_SSL_SHARED&wreply=https%3A%2F%2Fmail.live.com%2Fdefault.aspx%3Frru%3Dinbox
 
 http://zippyhelp.com/imagetools/stitch/photostitch.htm
 
