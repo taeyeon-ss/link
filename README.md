@@ -1,3 +1,7 @@
+
+http://zippyhelp.com/imagetools/stitch/photostitch.htm
+
+
 http://m.dcinside.com/gallog/home.php?g_id=wjsn88
 
 https://www.youtube.com/watch?v=wu4fhBXWkAQ&list=PLhX2mddJUT20IE0pGvB4KrfA8wmj2WKvt
