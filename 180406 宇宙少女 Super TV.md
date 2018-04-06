@@ -1,3 +1,13 @@
+https://send-anywhere.com/web/downloads/192T8AVY
+
+https://www.seedr.cc/files
+
+https://www.bytesloader.com/#/torrentDownload
+
+magnet:?xt=urn:btih:B3CCD61F10BFF0CDBE9506513B416039EEEEF6C7&dn=%20tvN%20%20%EC%8A%88%ED%8D%BCTV.E11.180406.720p-NEXT&tr=http://210.244.71.26:6969/announce&tr=http://mgtracker.org:2710/announce&tr=http://mgtracker.org:6969/announce&tr=http://tracker.dler.org:6969/announce&tr=http://tracker.kamigami.org:2710/announce&tr=http://tracker.kuroy.me:5944/announce&tr=http://tracker.mg64.net:6881/announce&tr=http://tracker.tvunderground.org.ru:3218/announce&tr=udp://182.176.139.129:6969/announce&tr=udp://9.rarbg.me:2720/announce&tr=udp://bt.xxx-tracker.com:2710/announce&tr=udp://eddie4.nl:6969/announce&tr=udp://opentrackr.org:1337/announce&tr=udp://public.popcorn-tracker.org:6969/announce&tr=udp://thetracker.org./announce&tr=udp://tracker.coppersurfer.tk:6969/announce&tr=udp://tracker.grepler.com:6969/announce&tr=udp://tracker.leechers-paradise.org:6969&tr=udp://www.eddie4.nl:6969/announce&tr=udp://zer0day.to:1337/announce
+
+@@
+
 [tvN] 슈퍼TV.E10.180331.720p-NEXT
 
 https://m.torrent.cam/b/torrent_kortv_ent-49544
