@@ -16,7 +16,7 @@ http://pttweb.com/kr_entertain/m-1523022432-a-81f.html
 
 @@
 
-宇宙少女 Super TV EP.11 女团运动会Cut[合集][20180406]
+宇宙少女XtvN Super TV EP.11(女团运动会)Cut[合集][20180406]
 
 [tvN] 슈퍼TV.E01.180126.1080p-NEXT
 
