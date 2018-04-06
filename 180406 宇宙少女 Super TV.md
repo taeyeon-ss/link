@@ -1,3 +1,7 @@
+[tvN] 슈퍼TV.E10.180331.720p-NEXT
+
+https://m.torrent.cam/b/torrent_kortv_ent-49544
+
 出演：利特、艺声、金希澈、神童、银赫、東海、Super Junior、宇宙少女(WJSN)、CLC、GUGUDAN、Weki Meki、fromis_9
 
 、
