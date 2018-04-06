@@ -1,3 +1,13 @@
+出演：利特、艺声、金希澈、神童、银赫、東海、Super Junior、宇宙少女(WJSN)、CLC、GUGUDAN、Weki Meki、fromis_9
+
+、
+
+SuperTV [11회 예고] 대세 걸그룹 출동! 봄맞이 운동회! 180406 EP.11
+
+http://pttweb.com/kr_entertain/m-1523022432-a-81f.html
+
+@@
+
 宇宙少女 Super TV EP.11 女团运动会Cut[合集][20180406]
 
 [tvN] 슈퍼TV.E01.180126.1080p-NEXT
