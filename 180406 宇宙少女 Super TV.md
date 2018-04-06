@@ -6,6 +6,8 @@ https://m.torrent.cam/b/torrent_kortv_ent-47768
 
 金希澈/利特/艺声/神童/始源/银赫/东海
 
+https://www.ptt.cc/bbs/SuperJunior/index.html
+
 宇宙少女程潇 x Avajar TVC 30秒[超清][20180405]
 
 Super Junior 金希澈/金童/东海(SJ) 宇宙少女程潇(WJSN) 思婷 周洁琼(PRISTIN) 本月少女 Heejin/Hyunjin (LOONA) Avajar Cosmetic TVCF 30秒+15秒 超清1080P
