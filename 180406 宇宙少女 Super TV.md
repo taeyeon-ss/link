@@ -1,6 +1,9 @@
+[tvN] 슈퍼TV.E01.180126.1080p-NEXT
 
+https://m.torrent.cam/b/torrent_kortv_ent-47768
 
 宇宙少女程潇 x Avajar TVC 30秒[超清][20180405]
+
 Super Junior 金希澈/金童/东海(SJ) 宇宙少女程潇(WJSN) 思婷 周洁琼(PRISTIN) 本月少女 Heejin/Hyunjin (LOONA) Avajar Cosmetic TVCF 30秒+15秒 超清1080P
 
 https://youtu.be/0g0WIXcenOA  30秒版本
