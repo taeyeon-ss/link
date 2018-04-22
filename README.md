@@ -1,3 +1,7 @@
+
+# pan baidu pan dl
+https://www.freedownloadmanager.org/
+
 https://graph.qq.com/oauth2.0/show?which=Login&display=pc&response_type=code&client_id=101135748&redirect_uri=https://passport.bilibili.com/login/snsback?sns=qq&&state=4ec16c60367611e8814b0242ac123ee3&state=authorize&scope=do_like,get_user_info,get_simple_userinfo,get_vip_info,get_vip_rich_info,add_one_blog,list_album,upload_pic,add_album,list_photo,get_info,add_t,del_t,add_pic_t,get_repost_list,get_other_info,get_fanslist,get_idollist,add_idol,del_idol,get_tenpay_addr
 
 #
