@@ -1,3 +1,11 @@
+# URL TO GOOGLE DRIVE
+http://urltodrive.softgateon.net/
+
+http://filetodrive.thetimetube.com/
+
+https://savetodrive.net/
+
+https://ifttt.com/applets/57124p-upload-file-from-url-to-google-drive
 
 # pan baidu pan dl
 https://www.freedownloadmanager.org/
