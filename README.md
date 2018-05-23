@@ -1,4 +1,7 @@
+ExtensionB站下载助手
 
+# bilibili download helper
+https://chrome.google.com/webstore/detail/b%E7%AB%99%E4%B8%8B%E8%BD%BD%E5%8A%A9%E6%89%8B/pbnamjhiajimldchmnjnjbnimiodjfil/related
 
 https://croppola.com/
 
