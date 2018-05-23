@@ -1,4 +1,9 @@
 
+
+https://croppola.com/
+
+http://resizeimage.net/
+
 # extract decompress rar
 https://extract.me/
 
