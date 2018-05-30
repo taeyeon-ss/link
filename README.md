@@ -1,5 +1,6 @@
 
-#
+# subtitle edit 3.5.6
+https://github.com/SubtitleEdit/subtitleedit/releases
 
 # 
 https://appnee.com/
