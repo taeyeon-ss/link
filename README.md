@@ -1,4 +1,8 @@
 
+
+# Disable HTML5 Autoplay
+https://chrome.google.com/webstore/detail/disable-html5-autoplay/efdhoaajjjgckpbkoglidkeendpkolai/related
+
 # subtitle edit 3.5.6
 https://github.com/SubtitleEdit/subtitleedit/releases
 
