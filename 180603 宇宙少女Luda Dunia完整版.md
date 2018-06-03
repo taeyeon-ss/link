@@ -1,6 +1,7 @@
 
 # firefox portable
-https://drive.google.com/a/my.tccd.edu/file/d/1YbZnr-wfsfodcZxelUWBs2aj6ruo7kng/view?usp=drivesdk
+https://drive.google.com/file/d/1YbZnr-wfsfodcZxelUWBs2aj6ruo7kng/view?usp=sharing
+
 
 # 180524 宇宙少女Luda 自拍饭拍
 https://twitter.com/DaisyAvenue306/status/999585639057117184
