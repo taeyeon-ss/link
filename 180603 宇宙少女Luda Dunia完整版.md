@@ -1,4 +1,10 @@
 
+# 180524 宇宙少女Luda 自拍饭拍
+https://twitter.com/DaisyAvenue306/status/999585639057117184?s=19
+
+# Luda 游戏 大师
+https://twitter.com/kimbully0819/status/1003210092123078656?s=19
+
 
 # 【loenfriends】中国区北京上海重庆选秀[20180604]
 https://www.instagram.com/p/BjjU6POAnvt/
