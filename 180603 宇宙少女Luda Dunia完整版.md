@@ -4,6 +4,9 @@
 
 https://torrent.mom/b/torrent_kortv_ent-51617
 
+# 두니아 처음 만난 세계 #01 180603 HDTV x264 1080p AAC nature boy
+https://torrent.mom/b/torrent_kortv_ent-51619?sfl=wr_subject&stx=P&sop=and
+
 http://m.dcinside.com/view.php?id=wjsntv&no=166&page=1
 # EP.1
 [TS]180603 MBC 두니아 처음만난세계 E01-루다 Cut&풀본
