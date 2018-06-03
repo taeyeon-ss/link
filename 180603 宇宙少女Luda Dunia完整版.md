@@ -3,7 +3,7 @@
 https://drive.google.com/a/my.tccd.edu/file/d/1YbZnr-wfsfodcZxelUWBs2aj6ruo7kng/view?usp=drivesdk
 
 # 180524 宇宙少女Luda 自拍饭拍
-https://twitter.com/DaisyAvenue306/status/999585639057117184?s=19
+https://twitter.com/DaisyAvenue306/status/999585639057117184
 
 # Luda 游戏 大师
 https://twitter.com/kimbully0819/status/1003210092123078656?s=19
@@ -46,4 +46,8 @@ http://sendanywhe.re/501LL7CC
 https://youtu.be/4BFvfcizxN4
 
 https://youtu.be/-8zSXVsD_0w
+
+# 
+180603 두니아 1회 ts 기차
+http://sendanywhe.re/M8DDDXBF
 
