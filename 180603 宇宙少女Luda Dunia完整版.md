@@ -1,4 +1,9 @@
 
+
+# 두니아 처음 만난 세계.E01.180603.720p BOGO
+
+https://torrent.mom/b/torrent_kortv_ent-51617
+
 http://m.dcinside.com/view.php?id=wjsntv&no=166&page=1
 # EP.1
 [TS]180603 MBC 두니아 처음만난세계 E01-루다 Cut&풀본
