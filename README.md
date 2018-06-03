@@ -7,6 +7,9 @@ http://ul.to/52pd72be
 http://turbobit.net/eeu9iuhbof46.html
 http://www.mexashare.com/8rmfif5xix7w/maxer-erp-system_v10.zip
 
+# 5G / 20m/s
+https://uplod.org/
+
 # 100G / unlimited file numbers
 https://transferxl.com/
 
