@@ -1,5 +1,8 @@
 
 
+# 100G / unlimited file numbers
+https://transferxl.com/
+
 # unlimited / unlimited
 https://bitsend.jp/?setLang=en
 
