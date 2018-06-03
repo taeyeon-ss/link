@@ -1,5 +1,16 @@
 
 
+# 【loenfriends】中国区北京上海重庆选秀[20180604]
+https://www.instagram.com/p/BjjU6POAnvt/
+
+# 宇宙少女俞延静Luda SNS短视频[20180603]
+https://www.instagram.com/p/Bjj9bj0DW0-/
+
+# 宇宙少女Luda 本放死守[20180604]
+https://twitter.com/WJSN_Cosmic/status/1003184725735952384?s=19
+
+https://www.instagram.com/p/BjjhckzF3lm/
+
 # 두니아 처음 만난 세계.E01.180603.720p BOGO
 
 https://torrent.mom/b/torrent_kortv_ent-51617
