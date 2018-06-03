@@ -1,5 +1,14 @@
 
 
+# unlimited / unlimited
+https://bitsend.jp/?setLang=en
+
+# 6G / file 50 downloads / 21days
+https://filetransfer.io/
+
+# 2G / file
+https://wetransfer.com/
+
 # Disable HTML5 Autoplay
 https://chrome.google.com/webstore/detail/disable-html5-autoplay/efdhoaajjjgckpbkoglidkeendpkolai/related
 
