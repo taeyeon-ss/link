@@ -1,5 +1,7 @@
 
 
+# baidudl, pan dl
+https://chrome.google.com/webstore/detail/baidudl/lflnkcmjnhfedgibjackiibmcdnnoadb?hl=en-US
 
 # 宇宙少女Luda dunia EP.01 中字
 http://wwwhxly9com/thread-1121-1-1.html
