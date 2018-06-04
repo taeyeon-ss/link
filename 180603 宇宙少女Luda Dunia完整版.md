@@ -4,6 +4,8 @@
 # 宇宙少女Luda dunia EP.01 中字
 http://wwwhxly9com/thread-1121-1-1.html
 
+E01.180603期：https://pan.baidu.com/s/1N9U17SEBityXTEnfAFAAiA 密码：nubb
+
 # 宇宙MEKI ASMR 180604
 http://m.vlive.tv/video/74096
 
