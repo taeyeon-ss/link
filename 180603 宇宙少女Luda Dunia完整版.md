@@ -8,6 +8,12 @@ http://wwwhxly9com/thread-1121-1-1.html
 
 E01.180603期：https://pan.baidu.com/s/1N9U17SEBityXTEnfAFAAiA 密码：nubb
 
+中文字幕
+https://openload.co/f/Y1UycjyRaMA
+
+英文字幕
+https://openload.co/f/D_7aGmcNQmw
+
 # 宇宙MEKI ASMR 180604
 http://m.vlive.tv/video/74096
 
