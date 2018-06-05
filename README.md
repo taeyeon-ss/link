@@ -1,5 +1,10 @@
 
 
+# portable firefox, chrome
+https://www.firefox-usb.com/
+
+https://www.chrome-portable.com/
+
 # https://uptobox.com/#url-upload
 https://rapidgator.net/file/6fa273202d4e325ed0e841aa78075094/maxer-erp-system_v10.zip.html
 https://userscloud.com/68w8yghav0b6
