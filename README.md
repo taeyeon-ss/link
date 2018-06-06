@@ -1,5 +1,10 @@
 
 
+# 搜索油管 Linkclump
+https://chrome.google.com/webstore/detail/linkclump/lfpjkncokllnfokkgpkobnkbkmelfefj?hl=en
+
+the best way to scrape Google search results is to get them in the normal way using a web browser, then use a bulk link manipulation extension to grab the links you want.
+
 # chrome
 https://drive.google.com/file/d/1INz1nXNJiBRlix-p9C7WdmaArE7jQJdP/view?usp=sharing
 
