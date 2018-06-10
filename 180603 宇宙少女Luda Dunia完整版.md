@@ -1,5 +1,70 @@
 
 
+
+
+# 宇宙少女雪娥Luda 棒球赛 开球 饭拍 180610
+https://twitter.com/s_hyonee/status/1005735629206929409?s=19
+
+# 高清油管 开球
+https://youtu.be/Nk6iNT52wBg
+
+10日下午，宇宙少女成員LUDA和雪娥在首尔蚕室棒球場舉行的“2018新韩銀行CAR KBO联赛”中進行试球
+
+# 宇宙少女Luda雪娥 KBO联赛NC vs 斗山 Cut+完整版[20180611]
+[TS]180610 KBO리그 NC vs 두산-루다&설아 Full Cut
+
+1. 시구/시타 컷
+
+센드애니웨어
+http://sendanywhe.re/0P19OJRI
+
+2. 시구/시타&깨알 컷
+
+센드애니웨어
+http://sendanywhe.re/938BV8HM
+
+
+# gif
+https://twitter.com/seolungif/status/1005762660946927616?s=19
+
+https://twitter.com/seolungif/status/1005865550977724416
+
+https://twitter.com/seolungif/status/1005860210689183744?s=19
+
+https://twitter.com/seolungif/status/1005795198280974337?s=19
+
+https://twitter.com/seolungif/status/1005790726372769793?s=19
+
+# 170805
+https://twitter.com/YtBn95/status/1005825075482800128?s=19
+
+# dunia youtube
+https://youtu.be/ZXFhEPNI-1s
+
+# 宇宙少女Luda 冰桶挑战 180610  
+
+IG
+
+# Dunia先公开
+https://youtu.be/Gk0wfAMXFN4
+
+# 宇宙少女Luda Dunia 完整版+ Cut 180610
+[TS]180610 MBC 두니아 처음만난세계 E02-루다 Cut&풀본
+
+1. 루다 컷
+
+센드애니웨어
+http://sendanywhe.re/69RNKARH
+
+2. 풀본
+
+마그넷
+http://mgnet.me/dqTlfmW
+
+센드애니웨어
+http://sendanywhe.re/66KW2YBV
+
+
 # b站下载扩展
 https://chrome.google.com/webstore/detail/%E5%93%94%E5%93%A9%E5%93%94%E5%93%A9%E5%8A%A9%E6%89%8B%EF%BC%9Abilibilicom-%E7%BB%BC%E5%90%88%E8%BE%85%E5%8A%A9%E6%89%A9%E5%B1%95/kpbnombpnpcffllnianjibmpadjolanh
 
