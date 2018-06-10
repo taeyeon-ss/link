@@ -1,6 +1,12 @@
 
 
 
+vm6cjh5h5euta2w.southcentralus.cloudapp.azure.com
+
+Lc2:?!JV(il9
+
+LabUser
+
 
 # 宇宙少女雪娥Luda 棒球赛 开球 饭拍 180610
 https://twitter.com/s_hyonee/status/1005735629206929409?s=19
