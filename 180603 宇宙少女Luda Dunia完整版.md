@@ -1,5 +1,10 @@
 
 
+vmcfh7yfg56nhvu.southcentralus.cloudapp.azure.com
+
+27n&&AX)-R5X
+
+# 180610
 
 vm6cjh5h5euta2w.southcentralus.cloudapp.azure.com
 
