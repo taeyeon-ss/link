@@ -37,6 +37,8 @@ https://search.bilibili.com/all?keyword=Produce48
 宇宙少女苞娜KBS新水木剧《Your House Helper》预告 180613
 https://twitter.com/MyloveKBS/status/1006702692733878274
 
+http://www.vlive.tv/video/75426
+
 金知妍 Bona 预告片
 
 # 宇宙少女Luda雪娥 KBO联赛 饭拍 180610
