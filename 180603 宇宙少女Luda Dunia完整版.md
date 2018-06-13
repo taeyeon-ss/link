@@ -1,5 +1,7 @@
 https://twitter.com/mnet_produce48/status/1006779281563938816
 
+https://tv.naver.com/v/3398775
+
 【Produce48】序言1|“PRODUCE48” 预告 180613
 
 프로듀스48 프롤로그 l [예고] ‘프로듀스48’을 내꺼로 만들기 위한 집.중.분.석!
