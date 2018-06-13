@@ -1,3 +1,19 @@
+https://twitter.com/mnet_produce48/status/1006738905092124672
+
+【Produce48】公民制作人，我现在要去见你！PD48幕后花絮 180613
+
+프로듀스48ㅣ[48 비하인드] 국민 프로듀서님, 지금 만나러 갑니다!
+
+2018년, 당신의 소녀에게 투표하라! 
+국민 프로듀서님! 잘 부탁드립니다! 
+
+2018년 6월 15일 (금) 밤 11시 첫/방/송 
+#프로듀스48 (#PRODUCE48) 
+2018.06.15 11pm (KST)
+
+https://tv.naver.com/v/3397991
+
+
 https://www.youtube.com/watch?v=lTVcOCnR9oI
 
 https://www.youtube.com/watch?v=dDPvyymKSWo
