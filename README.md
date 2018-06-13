@@ -1,5 +1,10 @@
 
 
+
+https://translate.google.com/
+
+http://fanyi.qq.com/
+
 # youtube playlist to mp3
 https://www.ytbmp3.com/se
 
