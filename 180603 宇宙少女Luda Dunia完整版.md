@@ -1,4 +1,8 @@
+
+宇宙少女苞娜《Your House Helper》预告 180613
 https://twitter.com/MyloveKBS/status/1006702692733878274
+
+金知妍 Bona 预告片
 
 # 宇宙少女Luda雪娥 KBO联赛 饭拍 180610
 https://twitter.com/jin08010731/status/1006463703070302208
