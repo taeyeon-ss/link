@@ -1,3 +1,5 @@
+http://fanyi.qq.com/
+
 https://twitter.com/mnet_produce48/status/1006779281563938816
 
 https://tv.naver.com/v/3398775
