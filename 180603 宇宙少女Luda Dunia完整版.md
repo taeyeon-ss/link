@@ -1,3 +1,25 @@
+
+https://www.ptt.cc/bbs/KR_Entertain/M.1528699444.A.B97.html
+
+https://youtu.be/PBKiriTVfyY 本週MCD有舞台
+
+여기저기 두근거리는 이번 주 엠카운트다운 라인업은?
+
+本周令人兴奋的M倒计时的倒计时阵容是什么？
+
+【Produce48】本周令人兴奋的MCD倒计时阵容? M COUNTDOWN EP.574 预告 180614
+
+여기저기 두근거리는 이번 주 엠카운트다운 라인업은? M COUNTDOWN 180614 EP.574
+
+M COUNTDOWN｜Ep.574 teaser 
+
+당신의 소녀에게 투표하세요 #PRODUCE48
+옴므파탈 #WannaOne 언제든 함께 #SHINee
+숙녀 #유빈 여섯 천사들 #AOA 무한 매력 #이달의소녀 #yyxy
+6월 14일 목요일 저녁 6시 엠카 본방사수하고, 같이 두근두근 하실래용~?
+
+https://youtu.be/PBKiriTVfyY
+
 http://fanyi.qq.com/
 
 https://twitter.com/mnet_produce48/status/1006779281563938816
