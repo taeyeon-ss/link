@@ -1,3 +1,8 @@
+youtu.be/ZIYcOc_pcFc
+
+【宇宙MEKI】WJMK《STRONG》MV视频制作 幕后花絮[20180613]
+
+
 
 https://www.ptt.cc/bbs/KR_Entertain/M.1528699444.A.B97.html
 
