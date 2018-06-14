@@ -1,4 +1,6 @@
 
+https://twitter.com/wjsnbona_a/status/1007016178391191552
+
 宇宙少女雪娥tvN新水木剧《金秘书》OST片段[20180613]
 
 광대 네 이놈, 냉큼 내려오지 못하겠느냐
@@ -31,6 +33,8 @@ https://twitter.com/LUmos_306/status/1006924090530136064
 
 # 宇宙少女雪娥《金秘书》OST 180613
 https://twitter.com/diodeoucc/status/1007115446913511425
+
+https://twitter.com/wujugemini/status/1007096713306255360 泄露部分
 
 #김비서가왜그럴까 OST 
 http://tv.naver.com/v/3400653 
