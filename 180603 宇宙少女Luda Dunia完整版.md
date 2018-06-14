@@ -1,6 +1,9 @@
 
+# 180614 Produce 48
+JAM Live x  Produce 48
+Special MC  20:00(KST) 18:00(ไทย)
 
-# 180614
+# 180614 多荣 JTBC 特别MC
 WJSN's Dayoung will appear as a special MC on tonight's episode of JTBC2's 'I've Fallen For You
 http://m.entertain.naver.com/now/read?oid=112&aid=0003040105
 
