@@ -11,6 +11,10 @@ http://tv.naver.com/v/3400653
 # 180610 KBO联赛 饭拍
 https://twitter.com/DaisyAvenue306/status/1006909312713650176
 
+https://twitter.com/DaisyAvenue306/status/1006515643321995264
+
+https://twitter.com/DaisyAvenue306/status/1006523304918769664
+
 # Luda签售会 饭拍
 https://twitter.com/LUmos_306/status/1006924090530136064
 
