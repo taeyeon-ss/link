@@ -19,6 +19,8 @@ https://twitter.com/DaisyAvenue306/status/1006523304918769664
 https://twitter.com/LUmos_306/status/1006924090530136064
 
 # 宇宙少女雪娥《金秘书》OST 180613
+https://twitter.com/diodeoucc/status/1007115446913511425
+
 #김비서가왜그럴까 OST 
 http://tv.naver.com/v/3400653 
 광대 네 이놈, 냉큼 내려오지 못하겠느냐
