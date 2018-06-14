@@ -6,6 +6,12 @@ pass: www.download.ir
 
 http://cdn.download.ir/?b=dlir-software&f=Allegorithmic.Substance.Painter.2018.1.2.2309.www.Download.ir.rar
 
+https://gfx-hub.net/software/6140-allegorithmic-substance-painter-2018122309-win-x64.html
+
+Serif Affinity Designer v1.6.5.109 – Win/mac
+http://cdn.download.ir/?b=dlir-software&f=Affinity.Designer.v1.6.5.109.x64.www.Download.ir.rar
+
+
 # 宇宙少女恩熙 随机游戏Ep.01[20180614]
 
 [#WJSN] 
