@@ -1,4 +1,7 @@
 
+英文字幕
+
+https://www.youtube.com/user/PlayMnet/videos
 
 http://finance.sina.com.cn/times/qt/2018-06-13/doc-ihcqccin5944126.shtml
 # 180614 Produce 48
