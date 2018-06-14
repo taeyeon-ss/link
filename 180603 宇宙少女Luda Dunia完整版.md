@@ -1,4 +1,10 @@
 
+
+# 180614
+WJSN's Dayoung will appear as a special MC on tonight's episode of JTBC2's 'I've Fallen For You
+http://m.entertain.naver.com/now/read?oid=112&aid=0003040105
+
+# 
 https://twitter.com/wjsnbona_a/status/1007016178391191552
 
 宇宙少女雪娥tvN新水木剧《金秘书》OST片段[20180613]
