@@ -1,4 +1,16 @@
 
+# 宇宙少女恩熙 随机游戏Ep.01[20180614]
+
+[#WJSN] 
+#은서 의 랜덤게임 🐶💃🏻🎮 Ep.01
+오늘 저녁 7시‼
+#우주소녀 #VLIVE 를 통해 
+함께하실 수 있습니다!🙆🏻🙆🏻‍♂️💖 
+#우정 분들 모두
+#브이앱 에서 만나요❣
+ 👀💙😘👇
+http://www.vlive.tv/video/75642 
+
 英文字幕
 
 https://www.youtube.com/user/PlayMnet/videos
