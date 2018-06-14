@@ -1,7 +1,11 @@
 
 
 
-
+Produce48 airs tomorrow (15 June 2018)
+- Produce 48 Prologue (Episode 0): 6:00 PM  KST 
+- Produce 48 JAM Live special broadcast with Hyungseob & Euiwoong: 8:00 PM KST
+- Produce 48 Episode 1: 11:00 PM KST
+#AHNYUJIN #안유진 #アンユジン #PRODUCE48 #PD48 #프로듀스48 #프듀48 
 
 https://appnee.com/x-proxy/
 
