@@ -1,4 +1,10 @@
 
+Telegram.Desktop.v1.3.7.Portable.www.Download.ir.zip
+https://uplod.org/67ymdm2rwfh6
+
+Affinity.Designer.v1.6.5.109.x64.www.Download.ir.zip
+https://uplod.org/z5c53wqdi3uz
+
 Allegorithmic.Substance.Painter.2018.1.2.2309.www.Download.ir.zip -  1.6 GB
 https://uplod.org/kbzgpwci4jy3
 
