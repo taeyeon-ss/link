@@ -8,7 +8,11 @@ Special MC  20:00(KST) 18:00(ไทย)
 # 180614 多荣 JTBC 特别MC
 https://twitter.com/_f_ull2/status/1007129085712035840
 
+P1
 https://tv.naver.com/v/3390217
+P2
+https://tv.naver.com/v/3393170
+
 [너에게 반했음] 7화 예고. 한 사람만 바라봐왔지
 
 宇宙少女多荣JTBC2《真实10代恋爱-为你着迷》特别MC 预告[20180612]
