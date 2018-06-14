@@ -1,5 +1,5 @@
 
-
+https://www.youtube.com/watch?v=LX7bJMW3je8
 
 Produce48 airs tomorrow (15 June 2018)
 - Produce 48 Prologue (Episode 0): 6:00 PM  KST 
