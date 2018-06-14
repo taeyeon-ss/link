@@ -68,6 +68,8 @@ OST "LOVE VIRUS"
 #우주소녀 #설아
 #러브바이러스
 
+https://tv.naver.com/v/3400617 剧集部分
+
 # 180610 KBO联赛 饭拍
 https://twitter.com/DaisyAvenue306/status/1006909312713650176
 
