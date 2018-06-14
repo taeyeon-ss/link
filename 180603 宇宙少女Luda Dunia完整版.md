@@ -1,4 +1,10 @@
 
+新版！
+
+https://youtu.be/X5ZBwPSe7LE
+
+http://gall.dcinside.com/board/lists/?id=produce48
+
 https://t.co/iLFHNqpCgl?amp=1
 
 https://www.youtube.com/watch?v=LX7bJMW3je8
