@@ -1,6 +1,8 @@
 
 宇宙少女雪娥tvN新水木剧《金秘书》OST 'LOVE_VIRUS' 180614
 
+金泫静 感性主唱 OST  雪娥
+
 https://www.youtube.com/watch?v=7_gGmgd9ip0
 
 [#WJSN]
