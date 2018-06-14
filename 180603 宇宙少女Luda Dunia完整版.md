@@ -41,6 +41,8 @@ https://twitter.com/DaisyAvenue306/status/1006523304918769664
 https://twitter.com/LUmos_306/status/1006924090530136064
 
 # 宇宙少女雪娥《金秘书》OST 180613
+https://twitter.com/CJnDrama/status/1006899714837528578
+
 https://twitter.com/diodeoucc/status/1007115446913511425
 
 https://twitter.com/wujugemini/status/1007096713306255360 泄露部分
