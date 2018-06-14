@@ -1,4 +1,7 @@
 
+
+http://www.vlive.tv/video/75642?channelCode=F5F127
+
 [단독] 프로듀스48_내꺼야(PICK ME) 연습복 Ver.
 【Produce48】主题曲 是我呀(PICK ME) 练习服 版本 180614
 
@@ -115,6 +118,7 @@ Telegram Desktop v1.3.7 – Win/Mac
 http://cdn.download.ir/?b=dlir-software&f=Telegram.Desktop.v1.3.7.Portable.www.Download.ir.rar
 
 # 宇宙少女恩熙 随机游戏Ep.01[20180614]
+http://www.vlive.tv/video/75642?channelCode=F5F127
 
 [#WJSN] 
 #은서 의 랜덤게임 🐶💃🏻🎮 Ep.01
