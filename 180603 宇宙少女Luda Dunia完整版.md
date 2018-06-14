@@ -16,6 +16,10 @@ https://twitter.com/VlwsnlV/status/1006908996647731206
 
 https://twitter.com/summersnow_24/status/1006931182800392192
 
+#김비서가왜그럴까 OST 
+#몬스타엑스 #기현 @OfficialMonstaX
+http://tv.naver.com/v/3400653 
+
 # 新闻
 https://twitter.com/WJSN_RssNews/status/1007081955823792134
 
