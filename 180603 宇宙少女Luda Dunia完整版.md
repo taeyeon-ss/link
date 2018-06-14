@@ -11,6 +11,8 @@ https://gfx-hub.net/software/6140-allegorithmic-substance-painter-2018122309-win
 Serif Affinity Designer v1.6.5.109 – Win/mac
 http://cdn.download.ir/?b=dlir-software&f=Affinity.Designer.v1.6.5.109.x64.www.Download.ir.rar
 
+Telegram Desktop v1.3.7 – Win/Mac
+http://cdn.download.ir/?b=dlir-software&f=Telegram.Desktop.v1.3.7.Portable.www.Download.ir.rar
 
 # 宇宙少女恩熙 随机游戏Ep.01[20180614]
 
