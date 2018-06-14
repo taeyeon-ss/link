@@ -10,6 +10,9 @@ https://uplod.org/kbzgpwci4jy3
 
 https://openload.co/f/-UIVLfxJPQk/GoogleChromePortable64.zip
 
+TeamViewer v13.0.6447 – Win/Mac
+http://cdn.download.ir/?b=dlir-software&f=TeamViewer.All.Editions.13.0.6447.www.download.ir.rar
+
 Allegorithmic Substance Painter 2018.1.2.2309 Win
 https://download.ir/
 
