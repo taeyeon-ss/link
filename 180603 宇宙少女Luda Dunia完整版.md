@@ -1,4 +1,6 @@
 
+https://openload.co/f/-UIVLfxJPQk/GoogleChromePortable64.zip
+
 Allegorithmic Substance Painter 2018.1.2.2309 Win
 https://download.ir/
 
