@@ -1,5 +1,21 @@
 
 
+
+# 宇宙少女恩熙 随机游戏Ep.01[20180614]
+http://www.vlive.tv/video/75642?channelCode=F5F127
+
+孙周延  
+
+[#WJSN] 
+#은서 의 랜덤게임 🐶💃🏻🎮 Ep.01
+오늘 저녁 7시‼
+#우주소녀 #VLIVE 를 통해 
+함께하실 수 있습니다!🙆🏻🙆🏻‍♂️💖 
+#우정 분들 모두
+#브이앱 에서 만나요❣
+ 👀💙😘👇
+http://www.vlive.tv/video/75642 
+
 http://www.vlive.tv/video/75642?channelCode=F5F127
 
 [단독] 프로듀스48_내꺼야(PICK ME) 연습복 Ver.
@@ -117,18 +133,7 @@ http://cdn.download.ir/?b=dlir-software&f=Affinity.Designer.v1.6.5.109.x64.www.D
 Telegram Desktop v1.3.7 – Win/Mac
 http://cdn.download.ir/?b=dlir-software&f=Telegram.Desktop.v1.3.7.Portable.www.Download.ir.rar
 
-# 宇宙少女恩熙 随机游戏Ep.01[20180614]
-http://www.vlive.tv/video/75642?channelCode=F5F127
 
-[#WJSN] 
-#은서 의 랜덤게임 🐶💃🏻🎮 Ep.01
-오늘 저녁 7시‼
-#우주소녀 #VLIVE 를 통해 
-함께하실 수 있습니다!🙆🏻🙆🏻‍♂️💖 
-#우정 분들 모두
-#브이앱 에서 만나요❣
- 👀💙😘👇
-http://www.vlive.tv/video/75642 
 
 英文字幕
 
