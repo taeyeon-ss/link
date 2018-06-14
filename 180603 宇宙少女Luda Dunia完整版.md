@@ -75,6 +75,8 @@ https://twitter.com/DaisyAvenue306/status/1006515643321995264
 
 https://twitter.com/DaisyAvenue306/status/1006523304918769664
 
+https://twitter.com/Kim_kookoo/status/1006865211196780544
+
 # Luda签售会 饭拍
 https://twitter.com/LUmos_306/status/1006924090530136064
 
