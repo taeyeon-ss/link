@@ -1,4 +1,28 @@
 
+
+
+
+
+# 180610 KBO联赛 饭拍
+https://twitter.com/DaisyAvenue306/status/1006909312713650176
+
+# Luda签售会 饭拍
+https://twitter.com/LUmos_306/status/1006924090530136064
+
+# 宇宙少女雪娥 OST 金秘书
+https://twitter.com/_ionoi_/status/1006891358584356865
+
+https://twitter.com/VlwsnlV/status/1006908996647731206
+
+https://twitter.com/summersnow_24/status/1006931182800392192
+
+# 新闻
+https://twitter.com/WJSN_RssNews/status/1007081955823792134
+
+https://twitter.com/WJSN_Cosmic/status/1007090223065337856
+
+# 180614
+
 https://s43.123apps.com/vconv/d/s43ZqzOgv3p.gif
 
 https://youtu.be/ZIYcOc_pcFc
