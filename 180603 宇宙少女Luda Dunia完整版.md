@@ -1,4 +1,6 @@
 
+https://t.co/iLFHNqpCgl?amp=1
+
 https://www.youtube.com/watch?v=LX7bJMW3je8
 
 Produce48 airs tomorrow (15 June 2018)
