@@ -6,7 +6,18 @@
 
 http://tv.naver.com/v/3400653
 
+OST "LOVE VIRUS"
 
+빨리 나와라 짝
+나와라 짝♡
+드디어 오늘 
+두구두구두구🎧 .
+
+#김비서가왜그럴까OST
+#박서준
+#몬스타엑스 #기현
+#우주소녀 #설아
+#러브바이러스
 
 # 180610 KBO联赛 饭拍
 https://twitter.com/DaisyAvenue306/status/1006909312713650176
