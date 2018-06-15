@@ -1,4 +1,6 @@
 
+[Mnet] 프로듀스48 프롤로그.E01.180615
+
 # somi CUT
 http://sendanywhe.re/SU0QXLEZ
 
