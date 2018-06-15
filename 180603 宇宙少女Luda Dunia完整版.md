@@ -1,5 +1,8 @@
 
 
+【Produce48】安宥真 张元英 赵佳贤 等级评价舞台 - 星船娱乐 180615
+https://youtu.be/zmsSHyocHNI
+
 http://dl7.telechargerunevideo.com/dl/?token=423c43aa0aa373b84e33567c0fc3fa6a22f69de9&vk=suh2_gSaFSi4NYNxWDkPBoqGKaNWkJAktYAWP0R7uFY&fn=%ED%94%84%EB%A1%9C%EB%93%80%EC%8A%A448+%28++PRODUCE48+%29+1%ED%9A%8C+180615+-1+-+%EB%8F%99%EC%98%81%EC%83%81+Dailymotion
 
 【Produce48】第一话 完整版 180615
