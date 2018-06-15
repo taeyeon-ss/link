@@ -1,4 +1,7 @@
 
+
+https://video.twimg.com/ext_tw_video/1007483910660354048/pu/vid/1280x720/yb3ZQ-xY0ix9ApQz.mp4?tag=3
+
 [두니아 루다 스페셜 ] 우주소녀 - 꿈꾸는 마음으로(노래방 Ver.)
 
 【Dunia】宇宙少女Luda特别版 Dreams Come True(卡拉OK版) 180615
