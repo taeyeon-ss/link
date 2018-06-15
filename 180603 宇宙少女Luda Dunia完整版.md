@@ -147,6 +147,8 @@ Special MC  20:00(KST) 18:00(ไทย)
 # 180614 多荣 JTBC 特别MC
 https://twitter.com/_f_ull2/status/1007129085712035840
 
+180614 너에게 반했음 7화
+
 https://tv.naver.com/10love/clips
 
 P1
