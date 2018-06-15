@@ -1,5 +1,7 @@
 
 
+https://www.youtube.com/user/PlayMnet/videos
+
 # PD48投票教程
 Produce48 voting started 15.06.18 23:05 KST
 1. sign up on global gmarket (if you dont have an acc)
