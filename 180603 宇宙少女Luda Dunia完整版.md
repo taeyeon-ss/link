@@ -1,5 +1,5 @@
 
-【Produce48】序言1|“PRODUCE48”选手试镜 集中分析 预告 180613
+【Produce48】序言2|“PRODUCE48”选手试镜 集中分析 预告 180615
 
 P1 主题曲
 https://youtu.be/W7penDRxwAs
