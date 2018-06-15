@@ -1,4 +1,6 @@
 
+http://search.dcinside.com/combine/q/.5BTS.5D180615.20.ED.94.84.EB.A1.9C.EB.93.80.EC.8A.A448
+
 [Mnet] 프로듀스48 프롤로그.E01.180615
 
 # somi CUT
