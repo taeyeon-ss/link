@@ -1,4 +1,18 @@
 
+[TS] 180615 프로듀스 48 프롤로그
+김태은 X 안준영 PD 황금 콜라보레이션 기대합니다
+
+http://sendanywhe.re/189MQIWP
+
+http://sendanywhe.re/S5E6OUBF
+
+[TS] 180615 프로듀스 48 프롤로그 장규리 CUT
+http://sendanywhe.re/FTH4GLFQ
+
+http://sendanywhe.re/85OMIQEU
+
+https://drive.google.com/file/d/1Dn63AliEUcWzz1uxZ9Y9zb8XibXyNbKg/view?usp=sharing
+
 【Produce48】安宥真 "Call Me Maybe" 选手试镜 180615
 https://twitter.com/_kimfork/status/1007558510664486913
 
