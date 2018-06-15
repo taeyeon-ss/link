@@ -12,6 +12,9 @@ https://www.youtube.com/watch?v=IhvK8SK0DLw
 P5 '想象超然魅力'个人三件套康惠元＆长谷川莉娜＆金敏珠
 https://www.youtube.com/watch?v=t87M7A6OnHU
 
+PRODUCE48 ′po춤신춤왕wer′ 이채연 & 나카노 이쿠미 180615 EP.15
+PRODUCE48 ′고막 여친′ 내꺼야♪ 야부키 나코 & 조유리 180615 EP.15
+PRODUCE48 ′상상초월 반전매력′ 개인기 3종 세트 강혜원 & 하세가와 레나 & 김민주 180615 EP.15
 
 https://youtu.be/4UmhzHXmvAI
 
