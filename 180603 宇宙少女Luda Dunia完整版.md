@@ -21,6 +21,8 @@ http://dl7.telechargerunevideo.com/dl/?token=423c43aa0aa373b84e33567c0fc3fa6a22f
 
 프로듀스48 ( PRODUCE48 ) 1회 180615 -1
 
+李佳恩
+
 P1
 https://www.dailymotion.com/video/x6lyjvf
 
