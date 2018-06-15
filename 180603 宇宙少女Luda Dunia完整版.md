@@ -9,7 +9,7 @@ P3 选手试镜 '舞蹈跳舞王'李彩妍和中野郁美
 https://www.youtube.com/watch?v=5e6XzdrxJx8
 P4 '我的耳膜女孩'是我的♪Yabuki Nakao＆Joe Yuri
 https://www.youtube.com/watch?v=IhvK8SK0DLw
-P5
+P5 '想象超然魅力'个人三件套康惠元＆长谷川莉娜＆金敏珠
 https://www.youtube.com/watch?v=t87M7A6OnHU
 
 
