@@ -18,7 +18,21 @@ https://youtu.be/zmsSHyocHNI
 http://dl7.telechargerunevideo.com/dl/?token=423c43aa0aa373b84e33567c0fc3fa6a22f69de9&vk=suh2_gSaFSi4NYNxWDkPBoqGKaNWkJAktYAWP0R7uFY&fn=%ED%94%84%EB%A1%9C%EB%93%80%EC%8A%A448+%28++PRODUCE48+%29+1%ED%9A%8C+180615+-1+-+%EB%8F%99%EC%98%81%EC%83%81+Dailymotion
 
 【Produce48】EP.01 您好！国民制作人！完整版 180615
+http://gall.dcinside.com/board/view/?id=produce48&no=407354
 
+http://gall.dcinside.com/board/view/?id=produce48&no=406888
+
+http://gall.dcinside.com/board/view/?id=produce48&no=406888
+
+http://search.dcinside.com/combine/q/.5BTS.5D.ED.94.84.EB.A1.9C.EB.93.80.EC.8A.A448.20
+
+
+https://drive.google.com/file/d/1fQoNq3c9zj7zt-Yhx1tyEo1_LW0jP6zC/view?usp=sharing
+
+https://drive.google.com/file/d/1fQoNq3c9zj7zt-Yhx1tyEo1_LW0jP6zC/view?usp=sharing
+
+https://drive.google.com/file/d/1Fa5p3q8RHrfrs6b2i_8C2vTNavVOV1IL/view?usp=sharing
+	
 프로듀스48 ( PRODUCE48 ) 1회 180615 -1
 
 李佳恩  王怡人  崔艺娜  金诗炫
