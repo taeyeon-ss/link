@@ -1,5 +1,10 @@
 
 
+PRODUCE48 [단독/선공개] 드디어! AKB48 등장! 그리고 한국연습생의 파워풀 퍼포먼스 180615 EP.1
+
+【Produce48】EP.1预告 终于！AKB48出现了！韩国学员的力量表现 180615
+
+https://youtu.be/tCR-ee53ngo
 
 # 宇宙少女恩熙 随机游戏Ep.01[20180614]
 http://www.vlive.tv/video/75642?channelCode=F5F127
