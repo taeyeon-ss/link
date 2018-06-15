@@ -1,3 +1,11 @@
+Jumphost DNS Name
+vmq4gsaef7homha.southcentralus.cloudapp.azure.com  
+Jumphost Password
+@1{:0cpu^7Uk  
+Jumphost Username
+LabUser 
+
+
 【Produce48】序言|PROLOGUE E01 选手试镜 集中分析 完整版 180615
 
 프로듀스48 프롤로그 E01 180615 720p
