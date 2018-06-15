@@ -4,6 +4,8 @@
 【Dunia】宇宙少女Luda特别版 Dreams come true(卡拉OK版) 180615
 https://youtu.be/fxX9ymWX380
 
+李露多 李露朵 
+
 
 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》幕后花絮[20180615]
 
