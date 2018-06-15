@@ -1,5 +1,12 @@
 
 
+#【Produce】EP.01 第一期Cut|王怡人 崔艺娜 金诗炫 - 乐华娱乐
+表演
+https://twitter.com/yhartists/status/1007684238982836256
+
+花絮
+https://twitter.com/yhartists/status/1007637704912166912
+
 https://s41.123apps.com/vconv/d/s416ugfk7ps.mp4
 
 https://www.youtube.com/user/PlayMnet/videos
