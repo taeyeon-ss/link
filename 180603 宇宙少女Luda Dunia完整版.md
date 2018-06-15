@@ -56,6 +56,9 @@ http://sendanywhe.re/SU0QXLEZ
 #chungha CUT
 http://sendanywhe.re/L2GEOUMA
 
+#I.O.I CUT
+	http://sendanywhe.re/490GNBCB
+
 https://s50.123apps.com/vconv/d/s50QwkgJZuW.mp4
 
 宇宙少女多荣的烹饪课程Ep.04[20180615]
