@@ -1,5 +1,22 @@
 
 
+
+
+https://youtu.be/4UmhzHXmvAI
+
+https://www.youtube.com/watch?v=4UmhzHXmvAI
+【Produce48】EP.1预告 全昭弥&姜丹尼尔来了！今晚11点 180615
+
+【Produce48】EP.1预告 全昭弥&姜丹尼尔来了！今晚11点 180615
+
+PRODUCE48 [예고/1회] 프듀 역대 센터 소미&다니엘이 떴다! 오늘 밤 11시 프로듀스48 180615 EP.1
+
+2018년, 당신의 소녀에게 투표하라!
+국민 프로듀서님! 잘 부탁드립니다!
+
+프로듀스48 (PRODUCE48)
+2018.06.15 11pm (KST)
+
 Jumphost DNS Name
 vmqiocinyb2g3za.southcentralus.cloudapp.azure.com  
 Jumphost Password
