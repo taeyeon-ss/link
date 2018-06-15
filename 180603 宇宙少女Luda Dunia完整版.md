@@ -1,7 +1,7 @@
 
 [두니아 루다 스페셜 ] 우주소녀 - 꿈꾸는 마음으로(노래방 Ver.)
 
-【Dunia】宇宙少女Luda特别版 Dreams come true(卡拉OK版) 180615
+【Dunia】宇宙少女Luda特别版 Dreams Come True(卡拉OK版) 180615
 https://youtu.be/fxX9ymWX380
 
 李露多 李露朵 
