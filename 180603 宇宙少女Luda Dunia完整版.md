@@ -1,4 +1,6 @@
 
+【Produce48】安宥真 "Call Me Maybe" 选手试镜 180615
+https://twitter.com/_kimfork/status/1007558510664486913
 
 # 180615
 
