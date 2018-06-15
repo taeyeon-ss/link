@@ -1,3 +1,5 @@
+第一期
+
 https://s41.123apps.com/vconv/d/s416ugfk7ps.mp4
 
 [1회] 소유쌤이 보고있다ㅣ스타쉽안유진, 조가현, 장원영
