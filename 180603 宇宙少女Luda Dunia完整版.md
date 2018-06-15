@@ -1,4 +1,18 @@
-英文字幕
+
+
+# PD48投票教程
+Produce48 voting started 15.06.18 23:05 KST
+1. sign up on global gmarket (if you dont have an acc)
+2. download the korean gmarket app
+3. search "프로듀스48"
+4. login
+5. vote
+cr. brixn
+
+#애프터스쿨 #가은 #AFTERSCHOOL #kaeun #gaeun #이가은 #カウン #teamKaeun #Produce48  #프로듀스48 
+
+
+#英文字幕
 
 第一期
 
