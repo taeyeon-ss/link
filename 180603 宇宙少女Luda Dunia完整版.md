@@ -1,4 +1,12 @@
 
+
+Jumphost DNS Name
+vmqiocinyb2g3za.southcentralus.cloudapp.azure.com  
+Jumphost Password
+faA7_YNs)M]^  
+Jumphost Username
+LabUser 
+
 【Produce48】EP.1预告 终于！AKB48出现了！韩国学员的力量表现 180615
 
 PRODUCE48 [단독/선공개] 드디어! AKB48 등장! 그리고 한국연습생의 파워풀 퍼포먼스 180615 EP.1 
