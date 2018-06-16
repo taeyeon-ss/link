@@ -1,5 +1,16 @@
 
 
+# 宇宙少女多荣JTBC2《真实10代恋爱-为你着迷》EP.07 完整版[180615]
+
+[TS] 180615 리얼 10대 연애 너에게 반했음 E07 - 다영
+http://mgnet.me/dqUE4IX
+
+http://sendanywhe.re/A416TPGG
+
+http://attach.mail.daum.net/bigfile/v1/urls/d/q3fOPNXF-Jy324jqystM9e_lsB8/Vy2RXLIUtSuPnPCy2IZpaw
+
+任多荣  郑世云  郑亨敦
+
 # 180616
 PRODUCE48 [단독/1회] ′올 것이 왔다!′ 리얼 순도 100% 프리댄스 180615 EP.1
 【Produce48】真正的纯度100％自由舞
