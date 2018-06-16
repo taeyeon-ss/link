@@ -1,5 +1,11 @@
 
 
+# 180616
+PRODUCE48 [단독/1회] ′올 것이 왔다!′ 리얼 순도 100% 프리댄스 180615 EP.1
+【Produce48】真正的纯度100％自由舞
+https://www.youtube.com/watch?v=yXGl_wbbAJM
+
+
 #【Produce】EP.01 第一期Cut|王怡人 崔艺娜 金诗炫 - 乐华娱乐
 表演
 https://twitter.com/yhartists/status/1007684238982836256
