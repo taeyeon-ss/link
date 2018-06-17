@@ -1,5 +1,24 @@
 
 
+
+[TS] 180617 인기가요 E962 - 우.모.프 거침없이
+http://sendanywhe.re/6TV44DBO
+http://attach.mail.daum.net/bigfile/v1/urls/d/zCwAxjuHdIB1WoOSMHGmNAkuHf0/IgC2wKezXjDGuTXHiwhcRw
+http://attach.mail.daum.net/bigfile/v1/urls/d/XIYFr5XBvzOPiJWscJluGmXv1pA/IgC2wKezXjBqp2krr2iGTA	
+http://attach.mail.daum.net/bigfile/v1/urls/d/geEbxgj39IDpTcL59bAayvtSY3s/IgC2wKezXjAiMXrcjp03Aw
+
+# 【Dunia】EP.03 
+루다 Cut 
+http://sendanywhe.re/669C5SQT
+
+http://attach.mail.daum.net/bigfile/v1/urls/d/T6MzeHG7ywdkqjZQ8ioJnHBqYa4/w3BMXQrOTZ9Kt_6Jk-cydw
+
+풀본 http://mgnet.me/dqUm3FA
+
+http://sendanywhe.re/I9ZQVLAK
+
+[TS] 180617 두니아 처음만난세계 E03 - 루다 Cut&풀본
+
 # 【Dunia】EP.03 Cuts
 https://www.youtube.com/watch?v=VJIxumsUjpU&list=PL7d9SABxcP1JJcylwGi_eOcmDWV2e-dNo
 
