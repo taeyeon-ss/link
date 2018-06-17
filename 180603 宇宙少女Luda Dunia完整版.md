@@ -3,37 +3,106 @@
 # WJNK采访 日本语字幕
 https://twitter.com/sgeswa/status/999631664711008259
 
-# 饭拍
-https://twitter.com/100seolgi_/status/1007980338784583681
+# 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.03 预告[180617]
+https://twitter.com/MBCdunia/status/1008132106139025408
+
+# 宇宙少女MBC第53届江原道市体育馆公演饭拍[合集][20180616]
+https://twitter.com/jakmo4/status/1007959781846351872
+
+https://twitter.com/_dy0514/status/1008021893692051456
+
+
+https://twitter.com/wjsnsarang/status/1007987557768941568
+
+https://twitter.com/raindrop0306/status/1007978935387226113
+
+https://twitter.com/myparadise83/status/1008054653836095488
+https://twitter.com/myparadise83/status/1008032811037540352
+https://twitter.com/myparadise83/status/1008019824830644224
+
+
+https://twitter.com/YtBn95/status/1008003742413672448
+https://twitter.com/YtBn95/status/1007996552139304960
+
+
+
+https://twitter.com/100seolgi_/status/1007982300208902146
 https://twitter.com/100seolgi_/status/1007981409762328578
 https://twitter.com/100seolgi_/status/1007980878314606595
-https://twitter.com/100seolgi_/status/1007982300208902146
-https://twitter.com/PaiParadise/status/1007983794983297024
-https://twitter.com/PaiParadise/status/1007975388536958977
-https://twitter.com/YtBn95/status/1007996552139304960
-https://twitter.com/YtBn95/status/1008003742413672448
-https://twitter.com/wjsnsarang/status/1007987557768941568
+https://twitter.com/100seolgi_/status/1007980338784583681
+
+
 https://twitter.com/KXX_wang/status/1008051700693782528
-https://twitter.com/raindrop0306/status/1007978935387226113
-https://twitter.com/myparadise83/status/1008032811037540352
-https://twitter.com/YUBEARYJ/status/1007984279056351232
-https://twitter.com/myparadise83/status/1008054653836095488
+https://twitter.com/KXX_wang/status/1008053113578614784
+https://twitter.com/KXX_wang/status/1008054106257178624
+https://twitter.com/KXX_wang/status/1008055602696687616
+https://twitter.com/KXX_wang/status/1008056120387108864
+https://twitter.com/KXX_wang/status/1008056612160860160
+https://twitter.com/KXX_wang/status/1008057189750136832
+https://twitter.com/KXX_wang/status/1008058311105601537
+https://twitter.com/KXX_wang/status/1008058450314608640
+
+
+https://twitter.com/wjsn_1613/status/1008036246986240000
+https://twitter.com/wjsn_1613/status/1008029247531700224
+https://twitter.com/wjsn_1613/status/1008026948574969856
+https://twitter.com/wjsn_1613/status/1008026067519483904
+https://twitter.com/wjsn_1613/status/1008016615009497088
+https://twitter.com/wjsn_1613/status/1008007614163140608
+https://twitter.com/wjsn_1613/status/1008005412317102080
+https://twitter.com/wjsn_1613/status/1008001765214597122
+https://twitter.com/wjsn_1613/status/1008000663706451968
+https://twitter.com/wjsn_1613/status/1007998349482516480
+https://twitter.com/wjsn_1613/status/1007967631897292800
+https://twitter.com/wjsn_1613/status/1007964225417834496
+https://twitter.com/wjsn_1613/status/1007963424213499905
+https://twitter.com/wjsn_1613/status/1007961890960506881
 
 # GIF
-https://twitter.com/wjsn_1613/status/1008019251301527552
 https://twitter.com/wjsn_1613/status/1008014387242659843
+https://twitter.com/wjsn_1613/status/1008019251301527552
 
 # periscope直播
 https://twitter.com/Ganadawon/status/1007952799760388097
 
+https://getvideo.at/en/faq/how-to-download-periscope-video
 
-# 合集
+https://www.pscp.tv/w/1zqJVLmleWPKB
 
+http://srv1.getvideo.at/download?id=dfb33216-3c84-4ea3-9e6e-f5d8aeefd017
 
+# 全场
+https://tv.naver.com/v/3420425
 
+# 宇宙少女MBC第53届江原道市体育馆公演[合集][20180616]
+
+[4K] 180616 우주소녀 은서 직캠 (WJSN/EUNSEO) - 인사 & 멘트모음 & 벌레사투 @MBC라디오공개방송(영월 스포츠파크)/Fancam By 쵸리(Chori)
+180616 우주소녀 다영 직캠 (WJSN DAYOUNG) -'멘트 모음' (Fancam) By.JJaGa !MBC 제53회 강원도민체전 @영월 스포츠파크 생활체육공원
 
 
 # 180616 宇宙少女 江原道公演，饭拍
+
+# PD48 等级评价舞台 修改分P标题
+https://www.ptt.cc/bbs/KoreanPop/M.1529154026.A.286.html
+
+# 安宥真 MV 广告 全集
+
+# 180617 SBS 人气歌谣 特别舞台 宇宙少女 - MOMOLAND - PRISTIN [毫不犹豫]
+Special Stage
+
+
+# 宇宙少女恩熙夏天 feat雪娥OST'Love Virus'[20180616]
+https://twitter.com/WJSN_Cosmic/status/1007913048324038656
+
+https://www.instagram.com/p/BkFHhE-FKXY/?taken-by=wjsn_cosmic
+wjsn_cosmic#설아 언니가 부른 #김비서가왜그럴까 OST 들으면서 #우정 들 만나러 가는 길이에용 우리 좀이따 만나용~👀🐶🐙 #러브바이러스 #LOVE_VIRUS
+#우주스타그램 #우주소녀 #은서
+
+# PD48 星船花絮++
+https://twitter.com/anyxxjin/status/1007635603029049344
+
+
+
 
 # PD48 等级评价舞台 修改分P标题
 https://www.ptt.cc/bbs/KoreanPop/M.1529154026.A.286.html
