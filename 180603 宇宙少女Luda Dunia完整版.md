@@ -1,4 +1,7 @@
 
+# PD48 EP.02 预告
+https://twitter.com/PRODUCE_48_/status/1008241414214377472
+
 
 http://www.youtube.com/watch?v=T2Mcrllx_IA
 
