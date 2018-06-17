@@ -120,6 +120,10 @@ https://www.ptt.cc/bbs/KoreanPop/M.1529154026.A.286.html
 # 180617 SBS 人气歌谣 特别舞台 宇宙少女 - MOMOLAND - PRISTIN [毫不犹豫]
 Special Stage
 
+宇宙少女Luda雪娥 x MOMOLAND x PRISTIN 毫不犹豫 SBS 人气歌谣 180617
+
+NANCY JOOE 林娜荣 郑银雨 Eunwoo
+
 # 宇宙少女多荣JTBC2《真实10代恋爱-为你着迷》EP.07 完整版[180615]
 
 [TS] 180615 리얼 10대 연애 너에게 반했음 E07 - 다영
