@@ -26,6 +26,8 @@ http://sendanywhe.re/I9ZQVLAK
 
 https://torrent.mom/b/torrent_kortv_ent-52098
 
+magnet:?xt=urn:btih:A9FB385B503A243D6D5A926913DFDEE1F8CF90AD
+
 https://torrent.mom/b/torrent_kortv_ent-52091?sfl=wr_subject%7C%7Cwr_content&stx=8&sop=and
 
 # 【Dunia】EP.03 Cuts
