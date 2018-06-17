@@ -97,7 +97,7 @@ https://www.ptt.cc/bbs/KoreanPop/M.1529154026.A.286.html
 Special Stage
 https://www.youtube.com/watch?v=eEfykAC9RTE
 
-宇宙少女Luda雪娥 x MOMOLAND x PRISTIN 毫不犹豫 SBS人气歌谣 合作舞台 180617
+宇宙少女Luda雪娥 x MOMOLAND x PRISTIN(毫不犹豫)SBS人气歌谣 合作舞台 180617
 
 https://youtu.be/eEfykAC9RTE
 
