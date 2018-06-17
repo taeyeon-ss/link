@@ -48,6 +48,12 @@ https://openload.co/f/lD7OxBHlmJg/
 
 http://www.youtube.com/watch?v=T2Mcrllx_IA
 
+https://www.bilibili.com/video/av25015384 神迹字幕
+
+https://www.bilibili.com/video/av25035505 TSKS凤凰天使
+
+https://www.bilibili.com/video/av25012905 幻想乐园
+
 # WJNK采访 日本语字幕
 https://twitter.com/sgeswa/status/999631664711008259
 
