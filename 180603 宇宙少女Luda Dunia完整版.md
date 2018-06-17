@@ -100,6 +100,8 @@ Special Stage
 # 宇宙少女恩熙夏天 feat雪娥OST'Love Virus'[20180616]
 https://twitter.com/WJSN_Cosmic/status/1007913048324038656
 
+李真淑 自拍
+
 https://www.instagram.com/p/BkFHhE-FKXY/?taken-by=wjsn_cosmic
 wjsn_cosmic#설아 언니가 부른 #김비서가왜그럴까 OST 들으면서 #우정 들 만나러 가는 길이에용 우리 좀이따 만나용~👀🐶🐙 #러브바이러스 #LOVE_VIRUS
 #우주스타그램 #우주소녀 #은서
