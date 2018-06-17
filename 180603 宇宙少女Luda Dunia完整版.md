@@ -21,6 +21,8 @@ http://sendanywhe.re/I9ZQVLAK
 
 [TS] 180617 두니아 처음만난세계 E03 - 루다 Cut&풀본
 
+https://torrent.mom/b/torrent_kortv_ent-52091?sfl=wr_subject%7C%7Cwr_content&stx=8&sop=and
+
 # 【Dunia】EP.03 Cuts
 https://www.youtube.com/watch?v=VJIxumsUjpU&list=PL7d9SABxcP1JJcylwGi_eOcmDWV2e-dNo
 
