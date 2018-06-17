@@ -1,5 +1,7 @@
 
+https://www.youtube.com/watch?v=8iw4IKQFz8A
 
+https://www.youtube.com/watch?v=kK6UEcyOSGc
 
 [TS] 180617 인기가요 E962 - 우.모.프 거침없이
 http://sendanywhe.re/6TV44DBO
