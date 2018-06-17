@@ -8,6 +8,7 @@ https://twitter.com/MBCdunia/status/1008132106139025408
 
 원주 MBC 특집 FM콘서트
 原州MBC特集FM音乐会
+https://www.youtube.com/watch?v=nkxnEVLzCQg&list=PL7d9SABxcP1K2-eaSj9ESH64JCUDO0KRT
 
 # 宇宙少女MBC第53届江原道市体育馆公演饭拍[合集][20180616]
 https://twitter.com/jakmo4/status/1007959781846351872
