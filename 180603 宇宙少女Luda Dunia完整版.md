@@ -261,9 +261,9 @@ https://www.youtube.com/watch?v=x9tHwnMbsno
 
 https://www.youtube.com/watch?v=To3IvdHv8_k
 
-https://www.youtube.com/watch?v=HmwgNRwp4JU
+https://www.youtube.com/watch?v=HmwgNRwp4JU  Woollim练习生 - AH Choo + Bad WM练习生 - Shower
 
-https://www.youtube.com/watch?v=_rc49KM9xgM
+https://www.youtube.com/watch?v=_rc49KM9xgM  8D Creattive练习生 - You & I 姜惠元 Urban Works练习生 -  No matter what 金敏珠
 
 P6
 https://www.youtube.com/watch?v=mSmUpR_KY1s
@@ -272,14 +272,14 @@ https://www.youtube.com/watch?v=XX5igXXEWJM
 
 https://www.youtube.com/watch?v=6xfR0OoaqJg
 
-https://www.youtube.com/watch?v=zmsSHyocHNI 星船P9
+https://www.youtube.com/watch?v=zmsSHyocHNI 星船P9  STARSHIP练习生 - Wings
 
 P10
-https://www.youtube.com/watch?v=PMPlNtLuLRw
+https://www.youtube.com/watch?v=PMPlNtLuLRw  HOW练习生 - Celeb five
 
-https://www.youtube.com/watch?v=M1rykjD-Toc
+https://www.youtube.com/watch?v=M1rykjD-Toc  AKB48(岩立沙穗/竹內美宥/后藤萌咲) - Dancing hero
 
-https://www.youtube.com/watch?v=Cv4draBPr4g
+https://www.youtube.com/watch?v=Cv4draBPr4g  Pledis练习生 - Havana
 
 https://www.youtube.com/watch?v=s49TC7kp7qM
 
