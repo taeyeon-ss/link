@@ -11,6 +11,8 @@ https://twitter.com/sgeswa/status/999631664711008259
 # 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.03 预告[180617]
 https://twitter.com/MBCdunia/status/1008132106139025408
 
+https://youtu.be/VJIxumsUjpU Dunia先公開
+
 원주 MBC 특집 FM콘서트
 原州MBC特集FM音乐会
 https://www.youtube.com/watch?v=nkxnEVLzCQg&list=PL7d9SABxcP1K2-eaSj9ESH64JCUDO0KRT
