@@ -28,6 +28,9 @@ https://drive.google.com/file/d/14n-aRzVgIRe1PHalP9JSZs65eJIy1WCC/view?usp=shari
 # 4k 
 https://drive.google.com/file/d/10VLelJAUXYTfN5Avo-uDyIG1hpgqyK2i/view?usp=sharing
 
+# advanced rename portable
+https://drive.google.com/file/d/1IOsJXvXwfZWSKFfsGc6anGVkUmGLEBAD/view?usp=sharing
+
 # firefox
 https://drive.google.com/file/d/1_Kr5QLz47LlBjWbNtJKyd3nEWshE8sAT/view?usp=sharing
 
