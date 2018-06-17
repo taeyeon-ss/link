@@ -1,5 +1,40 @@
 
 
+
+
+# WJNK采访 日本语字幕
+https://twitter.com/sgeswa/status/999631664711008259
+
+# 饭拍
+https://twitter.com/100seolgi_/status/1007980338784583681
+https://twitter.com/100seolgi_/status/1007981409762328578
+https://twitter.com/100seolgi_/status/1007980878314606595
+https://twitter.com/100seolgi_/status/1007982300208902146
+https://twitter.com/PaiParadise/status/1007983794983297024
+https://twitter.com/PaiParadise/status/1007975388536958977
+https://twitter.com/YtBn95/status/1007996552139304960
+https://twitter.com/YtBn95/status/1008003742413672448
+https://twitter.com/wjsnsarang/status/1007987557768941568
+https://twitter.com/KXX_wang/status/1008051700693782528
+https://twitter.com/raindrop0306/status/1007978935387226113
+https://twitter.com/myparadise83/status/1008032811037540352
+https://twitter.com/YUBEARYJ/status/1007984279056351232
+https://twitter.com/myparadise83/status/1008054653836095488
+
+# GIF
+https://twitter.com/wjsn_1613/status/1008019251301527552
+https://twitter.com/wjsn_1613/status/1008014387242659843
+
+# periscope直播
+https://twitter.com/Ganadawon/status/1007952799760388097
+
+
+# 合集
+
+
+
+
+
 # 180616 宇宙少女 江原道公演，饭拍
 
 # PD48 等级评价舞台 修改分P标题
