@@ -5,6 +5,10 @@ https://www.ptt.cc/bbs/KR_Entertain/M.1529082628.A.FE8.html
 # PD48 EP.02 预告
 https://twitter.com/PRODUCE_48_/status/1008241414214377472
 
+# PD48 EP.01 中字
+https://openload.co/f/vlZ7Vm1MI1w
+
+https://openload.co/f/lD7OxBHlmJg/
 
 http://www.youtube.com/watch?v=T2Mcrllx_IA
 
