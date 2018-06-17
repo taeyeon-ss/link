@@ -21,6 +21,11 @@ http://sendanywhe.re/I9ZQVLAK
 
 [TS] 180617 두니아 처음만난세계 E03 - 루다 Cut&풀본
 
+
+두니아 처음 만난 세계 #03 180617 HDTV x264 1080p AAC nature boy
+
+https://torrent.mom/b/torrent_kortv_ent-52098
+
 https://torrent.mom/b/torrent_kortv_ent-52091?sfl=wr_subject%7C%7Cwr_content&stx=8&sop=and
 
 # 【Dunia】EP.03 Cuts
