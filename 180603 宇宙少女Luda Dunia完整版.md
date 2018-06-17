@@ -48,6 +48,8 @@ https://openload.co/f/lD7OxBHlmJg/
 
 http://www.youtube.com/watch?v=T2Mcrllx_IA
 
+http://www.runningmanfen.com/produce-180615.html 180615 Produce48 E01 Mnet 中字下载 [女汉子][TSKS][幻想乐园]
+
 https://www.bilibili.com/video/av25015384 神迹字幕
 
 https://www.bilibili.com/video/av25035505 TSKS凤凰天使
