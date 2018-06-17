@@ -1,4 +1,7 @@
 
+
+https://www.ptt.cc/bbs/KR_Entertain/M.1529082628.A.FE8.html
+
 # PD48 EP.02 预告
 https://twitter.com/PRODUCE_48_/status/1008241414214377472
 
@@ -95,6 +98,8 @@ https://tv.naver.com/v/3420425
 
 # PD48 等级评价舞台 修改分P标题
 https://www.ptt.cc/bbs/KoreanPop/M.1529154026.A.286.html
+
+https://www.ptt.cc/bbs/KR_Entertain/M.1529082628.A.FE8.html
 
 # 安宥真 MV 广告 全集
 
