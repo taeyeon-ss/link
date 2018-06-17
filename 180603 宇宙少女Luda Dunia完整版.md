@@ -1,5 +1,7 @@
 
 
+http://www.youtube.com/watch?v=T2Mcrllx_IA
+
 # WJNK采访 日本语字幕
 https://twitter.com/sgeswa/status/999631664711008259
 
