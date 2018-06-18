@@ -1,5 +1,5 @@
 
-
+https://translate.baiducontent.com/transpage?query=http://www.instiz.net/pt&from=auto&to=kor&source=url
 
 https://translate.google.com/
 
