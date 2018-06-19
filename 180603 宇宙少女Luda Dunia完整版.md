@@ -645,3 +645,157 @@ https://tv.naver.com/v/3403925
 郑亨敦 郑世云 任多荣
 
 金素
+
+# 180619
+宇宙少女雪娥IG歌唱练习[20180616]
+
+https://www.youtube.com/watch?v=R6o_YkIuPQI
+
+金泫静
+
+https://twitter.com/MBC_entertain/status/1007819869482467328
+
+https://www.bilibili.com/video/av24890954/
+
+[Mnet] 프로듀스48 프롤로그.E01.180615
+
+https://s54.123apps.com/vcutter/d/s54cUsnXdme.flv
+
+https://file-1-255-62-10.send-anywhere.com/api/webfile/S5E6OUBF?device_key=d9d25bf465a5c2d3063b2155506ef39ff85aa741488a3d1f3b0accfda15fa428&timezone=0
+
+[TS] 180614 엠카운트다운 PRODUCE 48 CUT
+
+http://sendanywhe.re/P43TPOFH
+
+http://sendanywhe.re/16YGJERK
+
+http://gall.dcinside.com/board/lists/?id=pledis
+
+180607 슈퍼TV AOA ts 기차
+
+http://sendanywhe.re/41MWFBIC
+
+https://crossbrowsertesting.com/enterprise/trial
+
+宇宙少女雪娥tvN新水木剧《金秘书》OST片段[20180613]
+
+광대 네 이놈, 냉큼 내려오지 못하겠느냐
+#김비서가왜그럴까 OST
+
+http://tv.naver.com/v/3400653
+
+https://uplod.org/qc249a2isaa8
+
+4k
+
+https://twitter.com/DaisyAvenue306/status/1006909312713650176
+
+udfoidfjkll@inst.com
+
+https://twitter.com/kim_lulu_/status/1006411207413100544
+
+https://twitter.com/kim_lulu_/status/1005969732502106112
+
+youtu.be/gpdnWxORtvA
+
+https://twitter.com/kim_lulu_/status/1006518656451239939
+
+宇宙少女多荣 IG自拍[20180612]
+
+任多荣 自拍
+
+宇宙少女秀份夏天 宇宙新闻EP.3[20180612]
+
+朴秀份  李真淑  Soobin Yeoreum
+
+https://twitter.com/m1n_luda/status/1006496596236779521
+
+https://youtu.be/FpgOLwE91A0
+
+https://twitter.com/kimcgye/status/1004032384126210049
+
+https://www.microsoft.com/handsonlabs/SelfPacedLabs/?storyGuid=3afec72c-f7a4-4e4f-8950-36339a5d22c1
+
+@ssrshare_nsfw
+
+https://cloud.bitbar.com/#access/registration-userinfo
+
+jameskbelz@barid.com
+
+https://web.telegram.org/#/im?p=@ssrshare_nsfw
+
+https://mega.nz/#!haJUTSKa!raAM8TnqMEuYoCp47Mx_KHA_XkZCvffXpbylxE2dXac
+
+【Produce48】麦克风，是我的！ | 张元英、赵佳贤 | 星船娱乐 180609
+
+PRODUCE48 [48스페셜] 마이크, 내꺼야!ㅣ김도아(에프이엔티) 장원영(스타쉽) - ♬우주를 줄게 180615 EP.0
+
+https://youtu.be/dVUAhOMlUmM
+
+PRODUCE48 [48스페셜] 마이크, 내꺼야!ㅣ조가현(스타쉽) 김나영(바나나컬쳐) - ♬삐딱하게 180615 EP.0
+
+创造101
+
+https://www.google.com/intl/en/chrome/browser/desktop/index.html?standalone=1
+
+https://uplod.org/9bxtojrzhx2j
+
+https://uplod.org/d1ym6tqdykfo
+
+https://tv.naver.com/v/3378629?spi_ref=m_tvcast_twitter
+
+【Produce48】麦克风，是我的！ | 安宥真、崔艺娜 180610
+
+乐华娱乐
+
+4k
+https://drive.google.com/file/d/10VLelJAUXYTfN5Avo-uDyIG1hpgqyK2i/view?usp=sharing
+
+TV Naver
+http://d8.online-downloader.com/
+
+[TS] 180610 인기가요 E961 NEXT WEEK - 우모프
+
+2018-06-10 13:30:54
+
+센드애니웨어
+
+http://sendanywhe.re/L5P7XPQH
+
+宇宙少女雪娥Luda SBS人气歌谣 E961 世界杯精选 特别舞台 下周预告[20180610]
+
+金泫静 李露朵 李露多 MOMOLAND PRISTIN 林娜荣
+
+프로듀스 48
+
+宇宙少女 马来西亚 KWAVE 3音乐节 预告 180612
+
+郑世云 
+
+Dunia  E02 TSKS
+
+https://www.bilibili.com/video/av24697418
+
+b站下载扩展
+https://chrome.google.com/webstore/detail/%E5%93%94%E5%93%A9%E5%93%94%E5%93%A9%E5%8A%A9%E6%89%8B%EF%BC%9Abilibilicom-%E7%BB%BC%E5%90%88%E8%BE%85%E5%8A%A9%E6%89%A9%E5%B1%95/kpbnombpnpcffllnianjibmpadjolanh
+
+baidudl, pan dl
+https://chrome.google.com/webstore/detail/baidudl/lflnkcmjnhfedgibjackiibmcdnnoadb?hl=en-US
+
+cinema4D+r14精简版【旧电脑可以运行!!!】.zip - 143.5 MB
+
+https://uplod.org/wf7uemlvehw1
+
+CINEMA 4D R17.048 绿色免安装版(无密码)【旧电脑可以运行!!!】.zip - 138.4 MB
+
+https://uplod.org/4wvnpqtiqmkm
+
+AppNee.com.ZBrush.2018.FI.UF.7z - 1.0 GB
+
+https://uplod.org/nrd7na99k2bn
+
+blender-2.79b-windows64.msi - 83.8 MB
+
+https://uplod.org/tiyv6oxpun3c
+
+xiaoxiao's dance battle in 'day day up' (front-cam version)
