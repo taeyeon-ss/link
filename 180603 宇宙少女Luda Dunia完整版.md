@@ -13,7 +13,9 @@ KBS2TV 당신의 하우스헬퍼 - 7/4(수) 밤 10시 첫방송!! "필요합니�
 
 KBS2TV 당신의 하우스헬퍼 - 7/4(수) 밤 10시 첫방송!! "필요합니까?.....내...도움이...?"
 
-# 宇宙少女Luda 直播精选[20180620]
+李露多 李露朵
+
+# 宇宙少女Luda 伸展教室 直播精选[20180620]
 [WJSN] 이루다의 빙글뱅글🎶(feat.내적 흥얼)의 진실은...? (Luda's explanation about her episode in the dorm)
 http://www.vlive.tv/video/76400?channelCode=F5F127
 
