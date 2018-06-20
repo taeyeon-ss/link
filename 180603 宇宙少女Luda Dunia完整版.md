@@ -1,5 +1,13 @@
 
 
+# 【Produce48】目前的排名情况（截至上午6点20分上午）180620
+
+https://youtu.be/DE9SIH2he80
+
+#
+
+https://www.youtube.com/watch?v=DE9SIH2he80
+
 金知妍 
 
 # 宇宙少女苞娜《Your House Helper》预告[20180620]
