@@ -1,18 +1,36 @@
 
 
 
+# 宇宙少女苞娜《Your House Helper》预告[20180620]
+https://youtu.be/cLo0nkQq-Sk
+https://youtu.be/wbDRiP6Rge0
+https://youtu.be/0JaYYycETY4
 
+KBS2TV 당신의 하우스헬퍼 - 7/4(수) 밤 10시 첫방송!! "필요합니까?.....내...도움이...?"
 
+KBS2TV 당신의 하우스헬퍼 - 7/4(수) 밤 10시 첫방송!! "필요합니까?.....내...도움이...?"
 
-ssr://MTM5LjU5LjE2Ny4yNDY6NTAwMDpvcmlnaW46YWVzLTI1Ni1jZmI6cGxhaW46YVM1M2RYY3VjbVZrLz9vYmZzcGFyYW09JnByb3RvcGFyYW09JnJlbWFya3M9NUxpTjZabVE1cldCNlllUDVMaU42Wm1RNllDZg==
+KBS2TV 당신의 하우스헬퍼 - 7/4(수) 밤 10시 첫방송!! "필요합니까?.....내...도움이...?"
 
-ssr://Y2hpamkucWNnenh3LmNuOjg5ODk6YXV0aF9zaGExX3Y0OmNoYWNoYTIwOnRsczEuMl90aWNrZXRfYXV0aDpkM2QzTG5GalozcDRkeTVqYmc9PS8_b2Jmc3BhcmFtPSZwcm90b3BhcmFtPSZyZW1hcmtzPTZKdUg1NXF1NVpDRDZiaWg2YWFaNXJpdg==
+# 宇宙少女Luda 直播精选[20180620]
+[WJSN] 이루다의 빙글뱅글🎶(feat.내적 흥얼)의 진실은...? (Luda's explanation about her episode in the dorm)
+http://www.vlive.tv/video/76400?channelCode=F5F127
 
-ssr://MTU1Ljk0LjE5MC44NTo4MDphdXRoX2FlczEyOF9tZDU6YWVzLTI1Ni1jZmI6aHR0cF9wb3N0OmMyaGxibmwxLz9vYmZzcGFyYW09JnByb3RvcGFyYW09JnJlbWFya3M9Ym1ad0lEVGxpSURsdWJUa3U1Zz0=
+2018 레드엔첼 K펍
 
-ssr://NTQuMTY5LjM1LjIyODozMTQ0NDpvcmlnaW46YWVzLTI1Ni1jZmI6cGxhaW46UzFOWVRtaHVXbkJxZDBNMlVHTTJRdz09Lz9vYmZzcGFyYW09JnByb3RvcGFyYW09JnJlbWFya3M9YTNJd01RPT0=
+https://www.instagram.com/p/BkNxmHYBq-P/?taken-by=redangel1365
+redangel
 
+@redangel1365 #우주소녀 #wjmk #레드엔젤 #자라섬 #만나요 #세계최대규모 #kpop #kpop바캉스 
+#2018레드엔젤KPOP페스티벌in자라섬 
+#2018년_07월_13일부터_07월_15일까지
 
+2018 레드엔젤 K-POP 페스티벌 in 자라섬 
+공식 포스터 공개!! 
+
+宇宙少女2018 REDANGEL K-POP FESTIVAL[20180620]
+
+# 1111
 
 
 https://wqitem.jd.com/item/view?sku=6818156&price=8598.00&fs=1&pos=26&csid=f35fdd6fabdc9cc03f5144fde0ec12cf_1529316075107_2_1529316109541&ss_symbol=11&ss_mtest=p13ngender_wxbase,g_ht,p13n_wx_model2,qpv3,qpt4,qpz9&key=%E6%B8%B8%E6%88%8F%E6%9C%AC
