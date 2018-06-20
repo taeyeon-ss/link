@@ -4,6 +4,15 @@
 
 https://youtu.be/DE9SIH2he80
 
+[속보] 프로듀스48 현 순위 상황 (6/20 오전 10시 기준)
+[速報]＜PRODUCE48＞現順位状況(６/20午前10時基準）
+
+2018년, 당신의 소녀에게 투표하라!
+국민 프로듀서님! 잘 부탁드립니다!
+
+프로듀스48 (PRODUCE48)
+Every Fri. 11pm (KST)
+
 #
 
 https://www.youtube.com/watch?v=DE9SIH2he80
