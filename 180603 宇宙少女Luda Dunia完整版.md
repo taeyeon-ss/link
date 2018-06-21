@@ -1,4 +1,24 @@
 
+【Produce48】EP.02 第二期 “你现在在哭吗？”严酷的训练开始 预告 180621
+
+
+https://youtu.be/W26MnUzvv0w
+
+[ENG sub] PRODUCE48 [2회/예고] ′지금 혼나서 우는거야?′ 혹독한 트레이닝의 시작 180622 EP.2
+
+
+[2회/예고] ′지금 혼나서 우는거야?′ 혹독한 트레이닝의 시작
+
+2018년, 당신의 소녀에게 투표하라!
+국민 프로듀서님! 잘 부탁드립니다!
+
+ 
+프로듀스48 (PRODUCE48)
+Every Fri. 11pm (KST)
+
+安宥真
+
+
 ssr://MTU5LjY1LjEuMTg5OjUyNTI6YXV0aF9zaGExX3Y0OnJjNC1tZDU6aHR0cF9zaW1wbGU6TlRKemMzSXVibVYwLz8mcmVtYXJrcz1SRTFmNXBhdzVZcWc1WjJoZkZoWWZGaFlPakV6TUEmZ3JvdXA9ZDJWaVUzQnBaR1Z5
 
 ssr://MTQyLjQuMTI0LjEyMToxODAwMDpvcmlnaW46YWVzLTI1Ni1jZmI6cGxhaW46YzJoaGNtVXhPREF3TUEvPyZyZW1hcmtzPVJFMWY1NzZPNVp1OWZPV0tvT1dJcWVlbWorV3d2T1M2bW54WVdEbzROUSZncm91cD1kWE5sY2w5emFHRnlaUQ
