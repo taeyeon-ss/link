@@ -45,7 +45,7 @@ https://drive.google.com/file/d/1IOsJXvXwfZWSKFfsGc6anGVkUmGLEBAD/view?usp=shari
 https://drive.google.com/file/d/1mO9ajKFsrTCjKXVcuwqsnqRw4wpLNe7T/view?usp=sharing
 
 # pavtube
-https://drive.google.com/file/d/1HOUAlPn3AGZrO7pJqW6fRNJ15TG0bdaD/view?usp=sharing
+https://drive.google.com/file/d/1inV-MiXq2DbQRziWovTRAPMVCNMc0dZu/view?usp=sharing
 
 # chrome64
 https://drive.google.com/file/d/144QoEWDJx4verd_VuxA4F9q5PgiGCBOk/view?usp=sharing
