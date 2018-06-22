@@ -1,4 +1,10 @@
 
+# 宇宙少女Exy雪娥点唱机EP.4[20180622]
+http://www.vlive.tv/video/76770
+
+[엑시 설아] 엑떨의 우쥬크박스🎧 Ep.05
+
+金泫静  秋所静  秋昭贞
 
 【Produce48】花絮 花路前辈特别的欢呼！（Somi全昭弥、姜丹尼尔）180622
 https://youtu.be/Y4IySpukQWI
