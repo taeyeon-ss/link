@@ -6,7 +6,7 @@ http://www.vlive.tv/video/76770
 
 金泫静  秋所静  秋昭贞
 
-【Produce48】花絮 花路前辈特别的欢呼！（Somi全昭弥、姜丹尼尔）180622
+# 【Produce48】花絮 花路前辈特别的欢呼！（Somi全昭弥、姜丹尼尔）180622
 https://youtu.be/Y4IySpukQWI
 
 PRODUCE48 [48 비하인드] 꽃길 선배님들의 스페셜한 응원! 180622 EP.2
@@ -22,7 +22,7 @@ Every Fri. 11pm (KST)
 
 PRODUCE48 [48 비하인드] 꽃길 선배님들의 스페셜한 응원! 180622 EP.2
 
-【Produce48】EP.2 预告 韩日最年轻的团队表现发布！初公开180622
+# 【Produce48】EP.2 预告 韩日最年轻的团队表现发布！初公开180622
 https://tv.naver.com/v/3458936
 
 https://youtu.be/Q0KTkpWhkAQ
@@ -41,7 +41,7 @@ Every Fri. 11pm (KST)
 PRODUCE48 [단독/선공개] 한·일 막내라인 팀 퍼포먼스 공개! 180622 EP.2
 
 
-【Produce48】EP.02 第二期 “你现在在哭吗？”严酷的训练开始 预告 180621
+# 【Produce48】EP.02 第二期 “你现在在哭吗？”严酷的训练开始 预告 180621
 
 【Produce48】EP.2预告 “你现在在哭吗？”严酷的训练开始 180621
 宮脇咲良
