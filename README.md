@@ -22,6 +22,16 @@ the best way to scrape Google search results is to get them in the normal way us
 # chrome
 https://drive.google.com/file/d/1INz1nXNJiBRlix-p9C7WdmaArE7jQJdP/view?usp=sharing
 
+
+# cyberghost vpn
+https://drive.google.com/file/d/1elAY4PIavl3nr261_kUVHCq8oO5htVzp/view?usp=sharing
+
+# firefox
+https://drive.google.com/file/d/1_Kr5QLz47LlBjWbNtJKyd3nEWshE8sAT/view?usp=sharing
+
+# vnc viewer
+https://drive.google.com/file/d/1R_2c2k4kNTSpEisrQPcQWY_e2qu3kG1k/view?usp=sharing
+
 # .crx betternet unlimited
 https://drive.google.com/file/d/14n-aRzVgIRe1PHalP9JSZs65eJIy1WCC/view?usp=sharing
 
@@ -31,11 +41,11 @@ https://drive.google.com/file/d/10VLelJAUXYTfN5Avo-uDyIG1hpgqyK2i/view?usp=shari
 # advanced rename portable
 https://drive.google.com/file/d/1IOsJXvXwfZWSKFfsGc6anGVkUmGLEBAD/view?usp=sharing
 
-# firefox
-https://drive.google.com/file/d/1_Kr5QLz47LlBjWbNtJKyd3nEWshE8sAT/view?usp=sharing
+# working logo remover
+https://drive.google.com/file/d/1mO9ajKFsrTCjKXVcuwqsnqRw4wpLNe7T/view?usp=sharing
 
-# vnc viewer
-https://drive.google.com/file/d/1R_2c2k4kNTSpEisrQPcQWY_e2qu3kG1k/view?usp=sharing
+# pavtube
+https://drive.google.com/file/d/1HOUAlPn3AGZrO7pJqW6fRNJ15TG0bdaD/view?usp=sharing
 
 # chrome64
 https://drive.google.com/file/d/144QoEWDJx4verd_VuxA4F9q5PgiGCBOk/view?usp=sharing
