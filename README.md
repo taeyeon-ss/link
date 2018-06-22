@@ -44,6 +44,9 @@ https://drive.google.com/file/d/1IOsJXvXwfZWSKFfsGc6anGVkUmGLEBAD/view?usp=shari
 # working logo remover
 https://drive.google.com/file/d/1mO9ajKFsrTCjKXVcuwqsnqRw4wpLNe7T/view?usp=sharing
 
+# SolveigMM.Video.Splitter.5.2.1512.16.zip
+https://drive.google.com/file/d/1_7tIQ-1D8XKuUZBh2mRHaSGXq3zZM4aV/view?usp=sharing
+
 # pavtube
 https://drive.google.com/file/d/1inV-MiXq2DbQRziWovTRAPMVCNMc0dZu/view?usp=sharing
 
