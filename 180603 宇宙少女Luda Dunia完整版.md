@@ -1,4 +1,8 @@
 
+# 宇宙少女Luda"出发!Dunia旅游"宣传短视频[2018]
+https://twitter.com/MBC_entertain/status/1010084663707095041
+
+
 # 宇宙少女Exy雪娥点唱机EP.4[20180622]
 http://www.vlive.tv/video/76770
 
