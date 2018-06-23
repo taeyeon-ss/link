@@ -1,6 +1,6 @@
 
 
-# 【Produce48】花絮 拿呀拿
+# 【Produce48】花絮 拿呀拿 1.43 萌!
 https://youtu.be/3td3oIp2ScI
 
 오늘 밤 주인공은 나야나 나야나 + 헤비로테이션 뜻밖의 군무
