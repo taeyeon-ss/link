@@ -1,5 +1,9 @@
 
 
+# 宇宙少女苞娜《Your House Helper》读台本[20180623]
+http://www.vlive.tv/video/76907
+cr.KBS Drama
+
 # 【Produce48】花絮 拿呀拿 1.43 萌!
 https://youtu.be/3td3oIp2ScI
 
