@@ -1,4 +1,10 @@
 
+# 远程控制
+https://ultraviewer.net/en/download.html
+
+https://anydesk.com/download?os=win
+
+# 翻译
 https://translate.baiducontent.com/transpage?query=http://www.instiz.net/pt&from=auto&to=kor&source=url
 
 https://translate.google.com/
