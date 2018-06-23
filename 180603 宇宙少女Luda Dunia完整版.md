@@ -1,4 +1,12 @@
 
+
+# 【Produce48】花絮 拿呀拿
+https://youtu.be/3td3oIp2ScI
+
+오늘 밤 주인공은 나야나 나야나 + 헤비로테이션 뜻밖의 군무
+今天晚上的主人公是我啊我是我+头发站意外的群舞
+
+
 # 宇宙少女Luda"出发!Dunia旅游"宣传短视频[2018]
 https://twitter.com/MBC_entertain/status/1010084663707095041
 
