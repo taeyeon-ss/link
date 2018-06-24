@@ -1,6 +1,8 @@
 
 
-# [TS] 180624 MBC 두니아 처음만난세계 E04 - 루다
+# 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.04完整版[20180624]
+
+[TS] 180624 MBC 두니아 처음만난세계 E04 - 루다
 
 http://gall.dcinside.com/mgallery/board/view/?id=wjsntv&no=208&page=1
 
