@@ -1,5 +1,8 @@
 
 
+YouTube : http://youtu.be/6t5Gq_vLO2o 
+Naver : http://tv.naver.com/v/3469957 
+
 
 https://tv.naver.com/v/3469957
 
