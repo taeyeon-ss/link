@@ -4,6 +4,10 @@
 
 http://gall.dcinside.com/mgallery/board/view/?id=wjsntv&no=208&page=1
 
+http://mgnet.me/drr96pA
+
+http://sendanywhe.re/68PII6VP
+
 
 # 【Dunia】 蓝色春天 MV 180624
 https://twitter.com/MBCdunia/status/1010841233982275586
