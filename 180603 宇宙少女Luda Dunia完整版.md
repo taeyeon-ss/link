@@ -1,3 +1,30 @@
+
+# 【Dunia】 蓝色春天 MV 180624
+https://twitter.com/MBCdunia/status/1010841233982275586
+
+初次遇見的世界OST Part.1 - Ailee
+
+[두니아~처음 만난 세계 O.S.T] 에일리-파란 봄 MV (출처 : 두니아~처음만난세계 | 네이버TV)
+
+1.藍色的春天 (Title)
+https://youtu.be/oj_WFlMbeWU MV (MBCentertainment)
+
+https://youtu.be/zvmPEyBm930 官方音源 (vlending)
+
+
+Lyrics by EastWest, Maxine
+Composed by EastWest, Yeul, Maxine
+Arranged by EastWest, Yeul
+
+
+2.藍色的春天 (Inst.)
+
+
+試聽:
+https://www.melon.com/album/detail.htm?albumId=10178522
+
+#
+
 https://twitter.com/WJSN_Cosmic/status/1010824888662126592
 
 【宇宙MEKI】WJMK - <STRONG>  MV Green ver. 180624
