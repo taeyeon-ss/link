@@ -1,4 +1,10 @@
 
+
+# [TS] 180624 MBC 두니아 처음만난세계 E04 - 루다
+
+http://gall.dcinside.com/mgallery/board/view/?id=wjsntv&no=208&page=1
+
+
 # 【Dunia】 蓝色春天 MV 180624
 https://twitter.com/MBCdunia/status/1010841233982275586
 
