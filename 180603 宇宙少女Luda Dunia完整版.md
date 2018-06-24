@@ -1,5 +1,22 @@
 
+# 180624
+WJSN china line xiaoxiao + xuanyi (rg101) + meiqi (rg101) performance in
+'happy china graduation concert' (full episode) 😀
+https://youtu.be/2hsXpDwLlZA
+xiaoxiao - dance battle + talks (12:00~19:00)
+xuanyi + meiqi (rg101) - 'rocket girls 101 1st show' + 
+'rocket girls' + talks (1:04:21~1:15:17)
+*posted link been blocked, this is a new video link
 
+news
+https://youtu.be/dTuDQWeQ-K8
+
+rocket girls 101 - 'rocket girls 101 1st show' + 'rocket girls' + talks
+https://youtu.be/nii8Kl68xks
+
+xuanyi & meiqi news
+https://youtu.be/udZ7Kc1vfG0
+https://youtu.be/SIfXwLDJJj0
 
 # 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.04 Cut[合集][20180624]
 
