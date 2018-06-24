@@ -1,5 +1,21 @@
 
 
+
+https://tv.naver.com/v/3469957
+
+# 【Produce48】（扑通扑通扑通）第一次录制现场的幕后花絮 180624
+
+[48 비하인드] (두근두근♡) 첫 녹화 현장 비하인드
+
+2018년, 당신의 소녀에게 투표하라!
+국민 프로듀서님! 잘 부탁드립니다!
+
+프로듀스48 (PRODUCE48)
+
+Every Fri. 11pm (KST)
+
+安宥真 王怡人 赵佳贤
+
 Download link 
 https://we.tl/xNvAQQgXRS
 
