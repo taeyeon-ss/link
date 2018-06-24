@@ -38,8 +38,14 @@ https://drive.google.com/file/d/1_Kr5QLz47LlBjWbNtJKyd3nEWshE8sAT/view?usp=shari
 # vnc viewer
 https://drive.google.com/file/d/1R_2c2k4kNTSpEisrQPcQWY_e2qu3kG1k/view?usp=sharing
 
+# avidemux portable
+https://drive.google.com/file/d/1uLboylbo4fpZUiswkzTetgFnpCYiHoBk/view?usp=sharing
+
 # .crx betternet unlimited
 https://drive.google.com/file/d/14n-aRzVgIRe1PHalP9JSZs65eJIy1WCC/view?usp=sharing
+
+# chrome64
+https://drive.google.com/file/d/144QoEWDJx4verd_VuxA4F9q5PgiGCBOk/view?usp=sharing
 
 # 4k 
 https://drive.google.com/file/d/10VLelJAUXYTfN5Avo-uDyIG1hpgqyK2i/view?usp=sharing
@@ -56,8 +62,6 @@ https://drive.google.com/file/d/1_7tIQ-1D8XKuUZBh2mRHaSGXq3zZM4aV/view?usp=shari
 # pavtube
 https://drive.google.com/file/d/1inV-MiXq2DbQRziWovTRAPMVCNMc0dZu/view?usp=sharing
 
-# chrome64
-https://drive.google.com/file/d/144QoEWDJx4verd_VuxA4F9q5PgiGCBOk/view?usp=sharing
 
 # portable firefox, chrome
 https://www.firefox-usb.com/
