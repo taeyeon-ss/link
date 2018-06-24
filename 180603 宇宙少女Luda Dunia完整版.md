@@ -10,6 +10,11 @@ http://mgnet.me/drr96pA
 
 http://sendanywhe.re/68PII6VP
 
+두니아 처음 만난 세계.E04.180624.720p-NEXT
+https://www.tcorea.com/bbs/board.php?bo_table=torrent_kortv_ent&wr_id=112974&sca=&sfl=wr_subject&stx=720p+NEXT&sop=and
+
+https://www.seedr.cc/files
+
 
 # 【Dunia】 蓝色春天 MV 180624
 https://twitter.com/MBCdunia/status/1010841233982275586
