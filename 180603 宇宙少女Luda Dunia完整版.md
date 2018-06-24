@@ -1,3 +1,5 @@
+https://twitter.com/WJSN_Cosmic/status/1010824888662126592
+
 崔艺娜  金诗炫  宫脇咲良  松井珠理奈  李佳恩  权恩菲  王怡人
 
 YouTube : http://youtu.be/6t5Gq_vLO2o 
