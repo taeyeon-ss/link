@@ -19,7 +19,13 @@ Every Fri. 11pm (KST)
 
 安宥真 王怡人 赵佳贤
 
-Download link 
+
+# 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.04 预告[180624]
+https://tv.naver.com/v/3469637
+
+李露多 李露朵
+
+# Download link 
 https://we.tl/xNvAQQgXRS
 
 # 宇宙少女Luda介绍的出发！Dunia旅行甜蜜指南最初公开[20180623]
