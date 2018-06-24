@@ -2,6 +2,8 @@
 # 【Dunia】 蓝色春天 MV 180624
 https://twitter.com/MBCdunia/status/1010841233982275586
 
+https://tv.naver.com/v/3471395
+
 初次遇見的世界OST Part.1 - Ailee
 
 [두니아~처음 만난 세계 O.S.T] 에일리-파란 봄 MV (출처 : 두니아~처음만난세계 | 네이버TV)
