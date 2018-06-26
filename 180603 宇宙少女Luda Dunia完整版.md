@@ -2,9 +2,10 @@
 
 https://s37.123apps.com/vcutter/d/s371O3ZR6kD.flv
 
-# 宇宙少女Luda出乎意料的魅力收藏[20180626]
+# 【Dunia】宇宙少女Luda出乎意料的魅力收藏[20180626]
 https://twitter.com/withMBC/status/1011549634676776960
 
+杜尼亚，初次见到的世界  李露多  李露朵 
 
 【Produce48】初次等级评价舞台完整版 合集 180626
 
