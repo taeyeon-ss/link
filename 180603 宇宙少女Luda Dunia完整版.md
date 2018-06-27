@@ -1,4 +1,81 @@
 
+
+# 【Produce48】公司组合/个人练习生 等级评价舞台(完整版)合集 180625
+
+PRODUCE48 [단독/풀버전] 위에화_김시현, 왕이런, 최예나 ♬Move @기획사별 퍼포먼스 180622 EP.2
+
+# 2018/6/27
+우주소녀 3
+https://twitter.com/Ganadawon/status/1011946461603364865
+
+P1 Dreams come true
+https://www.pscp.tv/Chusajang608/1YqxogqQpWbxv
+Talk
+https://www.pscp.tv/Chusajang608/1gqxvXwEyDOGB
+P3 Secret
+https://www.pscp.tv/Chusajang608/1ynJOYvpDwyKR
+P4 I Wish
+https://www.pscp.tv/Chusajang608/1OdKrpaqOEQJX
+P5 
+https://www.pscp.tv/Chusajang608/1eaJbVMQjNRJX
+
+
+# 饭拍
+https://twitter.com/XXB_N8195/status/1011959772839473153
+
+https://twitter.com/dailydawon/status/1011969086308302854
+
+https://twitter.com/I_BONA_U/status/1011977538136989696
+
+https://twitter.com/kaleidoscope_BN/status/1011987207765147648
+
+https://twitter.com/casper10047/status/1011997948857626625
+
+https://twitter.com/casper10047/status/1011994991504207873
+
+https://twitter.com/casper10047/status/1011996049458655233
+
+https://twitter.com/casper10047/status/1011999405941985282
+
+https://twitter.com/speciallydawon/status/1011989459850575872
+
+https://twitter.com/myparadise83/status/1011992029616734209
+
+https://twitter.com/myparadise83/status/1011996347929542656
+
+https://twitter.com/LEOPISCES0225/status/1011987211212898304
+
+https://twitter.com/LuvusicaJ/status/1011983137365082112
+
+https://twitter.com/YUBEARYJ/status/1012003693149818881
+
+
+# GIF
+https://twitter.com/whyluda026/status/1011958542360719361
+
+https://twitter.com/m1n_luda/status/1011961604852731905
+
+https://twitter.com/kimbully0819/status/1011982179495075840
+
+# 180627 1080P
+https://youtu.be/pUcQn8jj_1Q
+
+https://www.youtube.com/results?search_query=%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%85%80&sp=CAJCBAgBEgA%253D
+
+# 宇宙少女现代汽车粉丝公演世界杯应援公演饭拍[合集][20180627]
+
+180627 #유연정 직캠 #연정 #yeonjung #wjsn #설레는밤 @현대자동차팬파크 영동대로
+
+# 【安宥真】公司组合/个人练习生 等级评价舞台(完整版)合集 180625
+
+# 【安宥真】EP.03 比赛开始了！复仇者VS复仇者联盟！究竟那个结果呢？预告 180627
+
+# 【Produce48】公司组合/个人练习生 等级评价舞台(完整版)合集 180625
+
+# 【Produce48】EP.03 比赛开始了！复仇者VS复仇者联盟！究竟那个结果呢？预告 180627
+
+# 180627
+
 【Produce48】EP.03 比赛开始了！复仇者VS复仇者联盟！究竟那个结果呢？预告 180627
 
 [ENG sub] PRODUCE48 [3회/예고] 빅매치가 시작된다! 어벤져스 vs 어벤져스! 과연 그 결과는? 180629 EP.3
