@@ -1,5 +1,31 @@
 
 
+
+# 饭拍
+https://twitter.com/KXX_wang/status/1012029886578356224
+
+https://twitter.com/XXB_N8195/status/1012038062405107713
+
+# GIF
+https://twitter.com/monn2ee/status/1012032401621450757
+
+https://twitter.com/whyluda026/status/1012037158448783360
+
+https://twitter.com/XXB_N8195/status/1012034437582745600
+
+https://twitter.com/K_DAN0914/status/1012027038763552768
+
+https://twitter.com/alalalalalalps/status/1012029545753374720
+
+https://twitter.com/XXB_N8195/status/1012036592641273856
+
+https://twitter.com/XXB_N8195/status/1012035070515765250
+
+https://twitter.com/XXB_N8195/status/1012034904589139968
+
+https://twitter.com/XXB_N8195/status/1012032467983785984
+
+# 
 https://www.youtube.com/watch?v=ZhRfmCQ0VHk
 
 https://www.youtube.com/watch?v=DqWNKHOmFfk
