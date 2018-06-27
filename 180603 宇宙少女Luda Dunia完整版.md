@@ -1,6 +1,16 @@
 
+# 宇宙少女苞娜《Your House Helper》EP1-2 "难以置信~！！！" 预告 180627
+<당신의 하우스헬퍼> #EP1-2. "언빌리버블~!!!(Unbelievable~!!!)"
 
-https://s37.123apps.com/vcutter/d/s371O3ZR6kD.flv
+P1
+http://www.vlive.tv/video/77456
+
+P2
+"마음을 청소해드립니다...."<당신의 하우스헬퍼>
+http://www.vlive.tv/video/77457
+
+#
+
 
 # 【Dunia】宇宙少女Luda出乎意料的魅力收藏[20180626]
 https://twitter.com/withMBC/status/1011549634676776960
