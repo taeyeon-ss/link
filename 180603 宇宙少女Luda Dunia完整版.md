@@ -79,7 +79,7 @@ https://youtu.be/pUcQn8jj_1Q
 
 https://www.youtube.com/results?search_query=%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%85%80&sp=CAJCBAgBEgA%253D
 
-# 宇宙少女现代汽车粉丝公演世界杯应援公演饭拍[合集][20180627]
+# 宇宙少女现代汽车粉丝公园2018世界杯应援公演饭拍[合集][20180627]
 
 180627 #유연정 직캠 #연정 #yeonjung #wjsn #설레는밤 @현대자동차팬파크 영동대로
 
