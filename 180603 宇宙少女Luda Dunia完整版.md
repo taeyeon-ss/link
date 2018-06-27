@@ -1,4 +1,10 @@
 
+【Produce48】EP.03 比赛开始了！复仇者VS复仇者联盟！究竟那个结果呢？预告 180627
+
+[ENG sub] PRODUCE48 [3회/예고] 빅매치가 시작된다! 어벤져스 vs 어벤져스! 과연 그 결과는? 180629 EP.3
+
+https://www.youtube.com/watch?v=6JmuhbCZ7Uo
+
 # 宇宙少女苞娜《Your House Helper》EP1-2 "难以置信~！！！" 预告 180627
 <당신의 하우스헬퍼> #EP1-2. "언빌리버블~!!!(Unbelievable~!!!)"
 
