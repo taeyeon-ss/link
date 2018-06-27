@@ -1,5 +1,9 @@
 
 
+https://twitter.com/wujugemini/status/1012019064007376896
+
+https://twitter.com/WJSN_Cosmic/status/1012006933216161792
+
 # 【Produce48】公司组合/个人练习生 等级评价舞台(完整版)合集 180625
 
 PRODUCE48 [단독/풀버전] 위에화_김시현, 왕이런, 최예나 ♬Move @기획사별 퍼포먼스 180622 EP.2
@@ -21,6 +25,14 @@ https://www.pscp.tv/Chusajang608/1eaJbVMQjNRJX
 
 
 # 饭拍
+https://twitter.com/100seolgi_/status/1012017045125283840
+
+https://twitter.com/100seolgi_/status/1012016173972516864
+
+https://twitter.com/myparadise83/status/1012006512489742336
+
+https://twitter.com/StanWJSN13/status/1012008672631771137
+
 https://twitter.com/XXB_N8195/status/1011959772839473153
 
 https://twitter.com/dailydawon/status/1011969086308302854
@@ -49,6 +61,9 @@ https://twitter.com/LuvusicaJ/status/1011983137365082112
 
 https://twitter.com/YUBEARYJ/status/1012003693149818881
 
+https://twitter.com/StanWJSN13/status/1012001940790657026
+
+https://twitter.com/seolbborise/status/1012019624215396352
 
 # GIF
 https://twitter.com/whyluda026/status/1011958542360719361
@@ -56,6 +71,8 @@ https://twitter.com/whyluda026/status/1011958542360719361
 https://twitter.com/m1n_luda/status/1011961604852731905
 
 https://twitter.com/kimbully0819/status/1011982179495075840
+
+https://twitter.com/kimgam819/status/1012015005418442752
 
 # 180627 1080P
 https://youtu.be/pUcQn8jj_1Q
