@@ -1,6 +1,9 @@
 
+https://twitter.com/kaleidoscope_BN/status/1012324344477839366
 
 https://www.youtube.com/watch?v=41WNYRyOsHE&feature=youtu.be
+
+https://twitter.com/Kim_kookoo/status/1012305235459444737
 
 # 宇宙少女苞娜《你的管家》预告&海报拍摄幕后花絮[20180628]
 
