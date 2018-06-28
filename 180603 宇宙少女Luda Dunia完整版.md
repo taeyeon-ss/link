@@ -29,6 +29,8 @@ https://twitter.com/dailydawon/status/1012224027677429761
 王怡人
 金诗炫
 
+https://www.youtube.com/watch?v=3vmJ8NrikKg&list=PL7d9SABxcP1JXjEAq15NWXzl4hWsblpkX
+
 # 180628 unfinished
 https://twitter.com/100seolgi_/status/1012248267143274496
 
