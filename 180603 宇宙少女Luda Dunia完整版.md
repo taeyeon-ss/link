@@ -1,9 +1,19 @@
 
 
-# 宇宙少女苞娜《你的管家》预告片海报拍摄 幕后花絮[20180628]
+# 宇宙少女苞娜《你的管家》预告&海报拍摄幕后花絮[20180628]
 
 https://twitter.com/LEOPISCES0225/status/1012116746709286914
 
+https://twitter.com/WJSN_Cosmic/status/1012138258183028736
+
+[배우 보나] '당신의 하우스헬퍼' 티저, 포스터 비하인드 (우주소녀 멤버2 출연)
+https://tv.naver.com/v/3494686
+
+
+7 / 4（周三）晚上10点首播KST
+
+# [VID] 180628 myelite1318's instagram update with Dawon - She's so cute
+https://twitter.com/dailydawon/status/1012224027677429761
 
 
 【Produce48】【直拍】主题曲 '是我的'（PICK ME）练习服版合集 180628
