@@ -29,6 +29,19 @@ https://twitter.com/dailydawon/status/1012224027677429761
 王怡人
 金诗炫
 
+# 180628 unfinished
+https://twitter.com/100seolgi_/status/1012248267143274496
+
+https://twitter.com/kimgam819/status/1012211067001303041
+
+https://twitter.com/kimgam819/status/1012212435044876290
+
+https://twitter.com/s_hyonee/status/1012205095046410240
+
+https://twitter.com/s_hyonee/status/1012215453945479176
+
+https://twitter.com/s_hyonee/status/1012114221079941125
+
 # 饭拍
 https://twitter.com/KXX_wang/status/1012029886578356224
 
