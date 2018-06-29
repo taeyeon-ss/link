@@ -1,4 +1,9 @@
 
+# 7/2 你的管家 制作发布会
+http://www.vlive.tv/video/77469 
+
+# 
+
 [INSTAGRAM] 170629 #우주소녀 ChengXiao for Julius
 https://twitter.com/wujugemini/status/1012598771803254785
 
