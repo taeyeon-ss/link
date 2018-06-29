@@ -1,4 +1,6 @@
 
+https://twitter.com/980527_v/status/1012344257477087232
+
 https://twitter.com/kaleidoscope_BN/status/1012324344477839366
 
 https://www.youtube.com/watch?v=41WNYRyOsHE&feature=youtu.be
