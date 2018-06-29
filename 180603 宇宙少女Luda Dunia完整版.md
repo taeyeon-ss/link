@@ -1,4 +1,28 @@
 
+
+# 【Produce48】EP.3先公开！组合对决评价 Peek-A-Boo(Red Velvet) 180629 
+PRODUCE48 [단독/선공개] 그룹 배틀 평가 ♬피카부 180629 EP.3
+https://youtu.be/rVKU8o9sxZo
+
+皮卡夫
+# 
+
+https://www.instagram.com/p/Bkhxw5sAX9N/?tagged=%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%85%80
+
+https://www.instagram.com/p/BkhyKHFn1KW/?tagged=%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%85%80
+
+https://www.instagram.com/p/BkiD4m-A2Wg/?tagged=%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%85%80
+
+https://www.instagram.com/p/BkiTJuiAl-J/?tagged=%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%85%80
+
+https://www.instagram.com/p/BkjS7w0lg7a/?tagged=%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%85%80
+
+https://www.instagram.com/p/BkjhAJKBAME/?tagged=%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%85%80
+
+https://www.instagram.com/p/BkkYI-5AHvG/?tagged=%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%85%80
+
+#
+
 https://twitter.com/980527_v/status/1012344257477087232
 
 https://twitter.com/kaleidoscope_BN/status/1012324344477839366
