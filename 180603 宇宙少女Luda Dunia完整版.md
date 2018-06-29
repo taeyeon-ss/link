@@ -1,4 +1,6 @@
 
+# A1 金敏书 替换掉
+https://www.youtube.com/watch?v=sps8PNYKErg
 
 # 【Produce48】EP.3先公开！组合对决评价 Peek-A-Boo(Red Velvet) 180629 
 PRODUCE48 [단독/선공개] 그룹 배틀 평가 ♬피카부 180629 EP.3
