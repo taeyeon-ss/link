@@ -24,6 +24,7 @@ https://www.instagram.com/p/BkjhAJKBAME/?tagged=%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%8
 https://www.instagram.com/p/BkkYI-5AHvG/?tagged=%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%85%80
 
 #
+https://twitter.com/Reversal_S1106/status/1012575680096190464 EXY
 
 https://twitter.com/980527_v/status/1012344257477087232
 
