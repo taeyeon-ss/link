@@ -9,6 +9,28 @@ https://twitter.com/kaleidoscope_BN/status/1013059911649902592
 
 https://www.youtube.com/watch?v=pOzFXUSjkoI&list=PL7d9SABxcP1K3QDivJPg2iFWYe64v48cC
 
+# gif
+https://www.instagram.com/p/Bkp6fi_BpkV/
+
+https://twitter.com/PaiParadise/status/1013089476011122688
+
+# fancam
+https://twitter.com/rosquilla_1224/status/1013084056097980422
+
+https://twitter.com/wujugemini/status/1013102186853629963
+
+https://twitter.com/KXX_wang/status/1013097299935760384
+
+https://www.instagram.com/p/Bkp1QzHnQIw/
+
+https://www.instagram.com/p/Bkp3202lKy8/
+
+https://www.instagram.com/p/Bkp3fUvHNdu/
+
+https://www.instagram.com/p/Bkp2OQ9BUbg/
+
+https://www.instagram.com/p/Bkp1g6gB98G/
+
 # 180630浦项制铁 Bisa 节 Boom up Festival
 180630 포항 쌍사축제 #우주소녀 #다영 @WJSN_Cosmic
 180630 포항 쌍사파티 프리뷰
