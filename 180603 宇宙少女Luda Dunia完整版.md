@@ -1,15 +1,128 @@
-vm4qlnrnqu6vm3o.southcentralus.cloudapp.azure.com
-
-(G>I}b=d-1Ig
-
-LabUser
 
 
-우주소녀 WJSN's Congratulation for OSEN V
+# Produce48 主题曲 是我的(PICK ME) 8bit版 180630
+https://twitter.com/cherrydwzi/status/1012887777745166336
+
+# 180627 苞娜饭拍
+https://twitter.com/kaleidoscope_BN/status/1013059911649902592
+
+# 180630浦项制铁 Bisa 节 Boom up Festival
+180630 포항 쌍사축제 #우주소녀 #다영 @WJSN_Cosmic
+180630 포항 쌍사파티 프리뷰
+https://twitter.com/rosquilla_1224/status/1013080135833038851
+
+https://twitter.com/rosquilla_1224/status/1013040790270967808
+
+https://twitter.com/rosquilla_1224/status/1013056092656447488
+
+https://twitter.com/rosquilla_1224/status/1013081929678114816
+
+https://twitter.com/chori9000/status/1013053127421915142
+
+https://twitter.com/LU_ha_DA/status/1013039212415684608
+
+https://twitter.com/2riwon_/status/1013064045832724480
+
+https://twitter.com/bn_rabbit_819/status/1013077521783328769 EXY自拍
+
+https://twitter.com/KXX_wang/status/1013058878441865217
+
+https://twitter.com/KXX_wang/status/1013062325413167104
+
+https://twitter.com/KXX_wang/status/1013061098960969728
+
+https://twitter.com/KXX_wang/status/1013060210900922371
+
+https://twitter.com/KXX_wang/status/1013059514252161025
+
+https://twitter.com/100seolgi_/status/1013069737373257729
+
+https://twitter.com/bn_rabbit_819/status/1013068473495257088
+
+
+https://twitter.com/PaiParadise/status/1013058291625181185
+
+# instagram #포항쌍사파티 #우주소녀
+https://www.instagram.com/explore/tags/%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%85%80/
+
+https://www.instagram.com/p/BkpnsWaALK6/ 5P
+
+https://www.instagram.com/p/Bkpm2_0n_Xs/
+
+https://www.instagram.com/p/Bkpcn1Inbx8/
+
+https://www.instagram.com/p/BkpwDJuH_YB/
+
+https://www.instagram.com/p/BkpusuSHkF9/
+
+https://www.instagram.com/p/BkpudGqlSjh/
+
+https://www.instagram.com/p/BkpuIE2ntGR/
+
+https://www.instagram.com/p/Bkpt2GMFHNp/
+
+https://www.instagram.com/p/Bkpqscgl5aa/
+
+https://www.instagram.com/p/BkpqOzwHZZB/
+
+https://www.instagram.com/p/BkpqMDqHPd3/
+
+https://www.instagram.com/p/Bkppw2DHJFc/ 秀份搞笑
+
+https://www.instagram.com/p/BkppkGOA-vg/
+
+https://www.instagram.com/p/Bkpo89TFkzz/
+
+https://www.instagram.com/p/BkpnsWaALK6/
+
+https://www.instagram.com/p/BkpnS09B0fZ/ 多荣自拍
+
+https://www.instagram.com/p/BkpmBUBn5Z9/ 多荣自拍
+
+https://www.instagram.com/p/Bkpm2_0n_Xs/
+
+https://www.instagram.com/p/Bkpc3Bjnc56/ 俞延静
+
+https://www.instagram.com/p/BkpyQVTgqzO/
+
+https://www.instagram.com/p/BkpxFyrA37S/
+
+
+
+# 直播
+https://www.pscp.tv/w/1MYxNqaAmmyJw
+
+http://periscopevideodownloader.com/
+
+http://twittervideodownloader.com/
+
+# Gif
+https://twitter.com/starfish_1207/status/1013035229966053377
+
+https://twitter.com/Kim_kookoo/status/1013034457261993984
+
+https://twitter.com/call_right0302/status/1013060822497497089
+
+https://twitter.com/b_bunniii/status/1013022845570445312
+
+https://twitter.com/b_bunniii/status/1013070752311009281
+
+https://twitter.com/b_bunniii/status/1013071141336805377
+
+https://twitter.com/b_bunniii/status/1013071922626613249
+
+https://twitter.com/b_bunniii/status/1013073525723164672
+
+https://twitter.com/lq_seoulforest/status/1013070845344866304
+
+https://twitter.com/PaiParadise/status/1013077445912588294
+
+
+# 우주소녀 WJSN's Congratulation for OSEN V
 https://www.vlive.tv/video/77799
 
 
-180630 KBS2 你的管家 Making #2 (苞娜)
+# 180630 KBS2 你的管家 Making #2 (苞娜)
 https://www.vlive.tv/video/78036
 
 <당신의 하우스헬퍼>[메이킹#2/티저&포스터]지운VS다영 "아니 이게 웬일이지??" 꽁냥꽁냥~~@@!
