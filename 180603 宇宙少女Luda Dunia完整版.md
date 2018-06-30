@@ -6,6 +6,9 @@ https://twitter.com/cherrydwzi/status/1012887777745166336
 # 180627 苞娜饭拍
 https://twitter.com/kaleidoscope_BN/status/1013059911649902592
 
+
+https://www.youtube.com/watch?v=pOzFXUSjkoI&list=PL7d9SABxcP1K3QDivJPg2iFWYe64v48cC
+
 # 180630浦项制铁 Bisa 节 Boom up Festival
 180630 포항 쌍사축제 #우주소녀 #다영 @WJSN_Cosmic
 180630 포항 쌍사파티 프리뷰
