@@ -4,7 +4,19 @@ vm4qlnrnqu6vm3o.southcentralus.cloudapp.azure.com
 
 LabUser
 
-【Produce48】EP.03 等级再评价/分组舞台花絮预告 合集 180629
+
+우주소녀 WJSN's Congratulation for OSEN V
+https://www.vlive.tv/video/77799
+
+
+180630 KBS2 你的管家 Making #2 (苞娜)
+https://www.vlive.tv/video/78036
+
+<당신의 하우스헬퍼>[메이킹#2/티저&포스터]지운VS다영 "아니 이게 웬일이지??" 꽁냥꽁냥~~@@!
+
+cr.KBS DRAMA
+
+# 【Produce48】EP.03 等级再评价/分组舞台花絮预告 合集 180629
 
 
 [第三集]“上升的等急忙忙”A班练习生们的命运是？
