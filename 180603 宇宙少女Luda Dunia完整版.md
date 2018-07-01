@@ -18,6 +18,19 @@ https://www.instagram.com/p/Bkp6fi_BpkV/
 https://twitter.com/PaiParadise/status/1013089476011122688
 
 # fancam
+https://www.instagram.com/p/BkrA4xunWUU/
+
+https://www.instagram.com/p/Bkq1rEglEra/
+
+https://www.instagram.com/p/BkqxmrvBGJQ/?tagged=%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%85%80
+
+https://www.instagram.com/p/BkqugRvnyeI/?tagged=%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%85%80
+
+
+https://www.instagram.com/p/BkqLsEqDwOc/?tagged=%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%85%80
+
+@@
+
 https://twitter.com/rosquilla_1224/status/1013084056097980422
 
 https://twitter.com/wujugemini/status/1013102186853629963
