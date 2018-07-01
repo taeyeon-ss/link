@@ -26,10 +26,18 @@ https://www.youtube.com/watch?v=v1EvraOC40g&list=PL7d9SABxcP1IsJPhzn5mFPSH6YIk15
 # 3
 https://www.youtube.com/watch?v=P7pMPlVmvAo&list=PL7d9SABxcP1IoNCEMciS_MFSyH47F20Ap
 
+https://www.youtube.com/watch?v=fmyAUilMeE8
+
+https://www.youtube.com/watch?v=U0p0KIOcJRY
+
 # gif
 https://www.instagram.com/p/Bkp6fi_BpkV/
 
 https://twitter.com/PaiParadise/status/1013089476011122688
+
+
+#
+https://twitter.com/jin08010731/status/1013306458916601857
 
 # fancam
 https://www.instagram.com/p/BkrA4xunWUU/
