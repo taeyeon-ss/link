@@ -1,5 +1,10 @@
 
 
+# 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.05 Cut[合集][20180701]
+https://www.youtube.com/watch?v=Evp9FFbMSS4&list=PL7d9SABxcP1Im6rsES84VkjofB8VGEJi7
+
+李露朵  李露多
+
 # 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.05 预告[20180701]
 https://tv.naver.com/v/3519015
 
@@ -8,7 +13,7 @@ https://tv.naver.com/v/3519015
 [선공개] 딘딘X샘 오취리의 살벌한 랩배틀! ＜쇼미더두니아＞ (feat.유노윤호)
 https://tv.naver.com/v/3519012/
 
-李露朵  李露多
+
 
 
 # Produce48 主题曲 是我的(PICK ME) 8bit版 180630
