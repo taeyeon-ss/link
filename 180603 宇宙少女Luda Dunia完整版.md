@@ -1,5 +1,15 @@
 
 
+# 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.05完整版[20180701]
+
+[TS] 180701 MBC 두니아 처음만난세계 E05 - 루다
+
+http://mgnet.me/drtBdI7
+
+http://sendanywhe.re/8DONCDQS
+
+https://drive.google.com/a/llit.kr/uc?id=1ttk4kxSsQ5_7NySGh4SU1OhwQZIlZgkJ
+
 # 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.05 Cut[合集][20180701]
 https://www.youtube.com/watch?v=Evp9FFbMSS4&list=PL7d9SABxcP1Im6rsES84VkjofB8VGEJi7
 
