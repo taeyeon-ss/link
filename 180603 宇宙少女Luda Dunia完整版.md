@@ -10,6 +10,17 @@ http://sendanywhe.re/8DONCDQS
 
 https://drive.google.com/a/llit.kr/uc?id=1ttk4kxSsQ5_7NySGh4SU1OhwQZIlZgkJ
 
+두니아 처음 만난 세계.E04.180624.720p-NEXT
+
+두니아-처음 만난 세계.E05.180701 – 무료TV다시보기
+https://ontvkorea.eu/?p=21585
+//streamango.com/v/d/tnnkmlpndqrtlosl~1530532422~159.65.0.0~9uYBdsdK/720
+
+https://www.tomovie.net/bbs/board.php?bo_table=torrent_kortv_ent&wr_id=73877
+두니아 처음 만난 세계.E05.180701.720p-NEXT 토렌트 토무비
+
+magnet:?xt=urn:btih:256783918C1B47B9EBD5BBE08E2855D427229035&dn=%EB%91%90%EB%8B%88%EC%95%84 %EC%B2%98%EC%9D%8C %EB%A7%8C%EB%82%9C %EC%84%B8%EA%B3%84.E05.180701.720p-NEXT
+
 # 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.05 Cut[合集][20180701]
 https://www.youtube.com/watch?v=Evp9FFbMSS4&list=PL7d9SABxcP1Im6rsES84VkjofB8VGEJi7
 
