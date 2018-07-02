@@ -24,6 +24,13 @@ https://twitter.com/Shaytyen_4/status/1013785188046815232
 루 얼굴에서 흐르는건 육수가 아니라 요구르트라규...
 https://twitter.com/Shaytyen_4/status/1013785422881742848
 
+LIFETIME 'Up! Pretty' (업!프리티) Ep.07
+
+https://tv.naver.com/lifetimekorea
+
+인조 속눈썹 무한 재활용 꿀팁! 우주소녀(WJSN) 루다, 연정이 알려줄게 [업프리티]
+https://tv.naver.com/v/3526257
+
 # 宇宙少女苞娜《你的管家》制作发布会饭拍[合集][20180702]
 https://twitter.com/I_BONA_U/status/1013653537593495552
 
