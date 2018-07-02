@@ -28,7 +28,19 @@ http://www.vlive.tv/video/77469
 http://www.vlive.tv/video/77672
 [당신의 하우스헬퍼] 제작발표회 생중계 / [Your Househelper] FULL LIVE on Press Conference
 
+[TS] 180702 [당신의 하우스헬퍼] 제작발표회-보나 Cut&풀본
 
+보나 Cut 
+http://sendanywhe.re/IV2TNHKQ
+
+https://drive.google.com/a/llit.kr/uc?id=1xSc9rfcTxNilF4V_kr5H5RBpaYIWjbRv
+
+FULL
+http://sendanywhe.re/0QLLIECW
+
+https://drive.google.com/a/llit.kr/uc?id=1uha3Om4s5u8JK6ec5lNqQO2olnFOK7-f
+
+# 11111
 P91 
 https://www.youtube.com/watch?v=5lha0dD4ucs
 
