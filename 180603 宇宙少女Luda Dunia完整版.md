@@ -1,4 +1,17 @@
 
+# 宇宙少女苞娜《你的管家》制作发布会饭拍[合集][20180702]
+https://twitter.com/I_BONA_U/status/1013653537593495552
+
+# 宇宙少女苞娜《你的管家》制作发布会后台 180702
+
+http://www.vlive.tv/video/77469
+[당신의 하우스헬퍼] 제작발표회 대기실 라이브 / [Your Househelper] LIVE on Press Conference Backstage
+
+# 宇宙少女苞娜《你的管家》制作发布会 180702
+
+http://www.vlive.tv/video/77672
+[당신의 하우스헬퍼] 제작발표회 생중계 / [Your Househelper] FULL LIVE on Press Conference
+
 
 
 【Produce48】【直拍】王怡人 - Red Velvet(Peek-A-Boo)1组@组合对决 180629 EP.3
