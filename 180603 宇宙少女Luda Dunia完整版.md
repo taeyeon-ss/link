@@ -1,4 +1,8 @@
 
+
+【Produce48】【直拍】金诗炫 - AOA(Short Hair)1组@组合对决 180629 EP.3
+https://youtu.be/2l43HyWQKFk
+
 【Produce48】【直拍】张元英 - I.O.I(Very Very Very)1组@组合对决 180629 EP.3
 https://youtu.be/SSPGPp6oSL4
 
