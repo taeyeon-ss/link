@@ -14,6 +14,16 @@ WJSN Luda and Yeonjung will tell you plenty of beauty tips :)
 
 https://twitter.com/LifetimeKorea/status/1013718707015569410
 
+180702.업프리티.#우주소녀(#WJSN) #루다(#Luda) 루 눈썹의 비밀.. 곰손에게 유용한 아이브로 틴트
+https://twitter.com/Shaytyen_4/status/1013783395610923008
+
+180702.업프리티.#우주소녀(#WJSN) #루다(#Luda) #연정 의 애정템 변심ㅋ
+https://twitter.com/Shaytyen_4/status/1013785188046815232
+
+180702.업프리티.#우주소녀(#WJSN) #루다(#Luda) #연정 사연소개 상황극..
+루 얼굴에서 흐르는건 육수가 아니라 요구르트라규...
+https://twitter.com/Shaytyen_4/status/1013785422881742848
+
 # 宇宙少女苞娜《你的管家》制作发布会饭拍[合集][20180702]
 https://twitter.com/I_BONA_U/status/1013653537593495552
 
@@ -29,6 +39,8 @@ http://www.vlive.tv/video/77469
 [당신의 하우스헬퍼] 제작발표회 대기실 라이브 / [Your Househelper] LIVE on Press Conference Backstage
 
 # 宇宙少女苞娜《你的管家》制作发布会 180702
+
+https://twitter.com/I_BONA_U/status/1013771520290611200 金刚starship 讲话
 
 http://www.vlive.tv/video/77672
 [당신의 하우스헬퍼] 제작발표회 생중계 / [Your Househelper] FULL LIVE on Press Conference
