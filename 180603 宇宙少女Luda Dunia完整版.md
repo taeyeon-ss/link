@@ -1,5 +1,6 @@
 
 【Produce48】【直拍】崔艺娜 - I.O.I(Very Very Very)1组@组合对决 180629 EP.3
+https://youtu.be/H-zS2nGLGd4
 
 【Produce48】【直拍】安宥真 - I.O.I(Very Very Very)1组@组合对决 180629 EP.3
 
