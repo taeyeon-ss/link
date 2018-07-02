@@ -1,4 +1,9 @@
 
+# 180702001
+https://www.youtube.com/watch?v=4r1WdJ1nMcw&list=PL7d9SABxcP1L3ysK4M9bbCM-opz_6kuka
+
+# 180630004
+https://www.youtube.com/watch?v=dCQ-LYbuVLI&list=PL7d9SABxcP1LocEXLl445INVGg5grWqE4
 
 # 宇宙少女Luda俞延静美妆技巧一箩筐[20180702]
 
