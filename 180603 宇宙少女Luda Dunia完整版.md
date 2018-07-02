@@ -35,6 +35,12 @@ http://www.vlive.tv/video/77672
 
 [TS] 180702 [당신의 하우스헬퍼] 제작발표회-보나 Cut&풀본
 
+http://www.vlive.tv/video/78318?channelCode=D4F547
+
+http://www.vlive.tv/video/77672?channelCode=D4F547
+
+http://www.vlive.tv/video/77469?channelCode=D4F547
+
 보나 Cut 
 http://sendanywhe.re/IV2TNHKQ
 
