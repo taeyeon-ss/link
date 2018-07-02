@@ -1,7 +1,20 @@
 
+
+# 宇宙少女Luda俞延静美妆技巧一箩筐[20180702]
+
+인조 속눈썹 무한 재활용 꿀팁! 우주소녀(WJSN) 루다, 연정이 알려줌 [업프리티]
+https://youtu.be/iDy2QLcON7Y
+
+WJSN Luda and Yeonjung will tell you plenty of beauty tips :)
+
+https://twitter.com/LifetimeKorea/status/1013718707015569410
+
 # 宇宙少女苞娜《你的管家》制作发布会饭拍[合集][20180702]
 https://twitter.com/I_BONA_U/status/1013653537593495552
 
+https://twitter.com/I_BONA_U/status/1013711992111054849
+
+https://twitter.com/B__Bercy/status/1013706881439752192
 
 http://channels.vlive.tv/D4F547/video
 
