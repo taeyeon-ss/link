@@ -88,6 +88,12 @@ http://sendanywhe.re/3571MMPD
 
 # 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.05完整版[20180701]
 
+https://www.bilibili.com/video/av26014967
+
+https://openload.co/f/HZEB9hBif14
+
+https://www.rapidvideo.com/v/FSVPS8Q1UG
+
 [TS] 180701 MBC 두니아 처음만난세계 E05 - 루다
 
 http://mgnet.me/drtBdI7
