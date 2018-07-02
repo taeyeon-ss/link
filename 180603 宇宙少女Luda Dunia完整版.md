@@ -2,6 +2,9 @@
 # 宇宙少女苞娜《你的管家》制作发布会饭拍[合集][20180702]
 https://twitter.com/I_BONA_U/status/1013653537593495552
 
+
+http://channels.vlive.tv/D4F547/video
+
 # 宇宙少女苞娜《你的管家》制作发布会后台 180702
 
 http://www.vlive.tv/video/77469
