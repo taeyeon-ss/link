@@ -1,5 +1,19 @@
 
 
+
+【Produce48】【直拍】赵佳贤 OOH-AHH 2组@组合对决 180629 EP.3
+https://youtu.be/bJaek6yBj7A
+
+【Produce48】【直拍合集】 OOH-AHH 组合对决(Group Battle) 180629 EP.3
+https://www.youtube.com/user/PlayMnet/videos
+
+# 宇宙少女多荣恩熙《隐藏的歌手5》EP.04预告[20180702]
+
+[TS] 180708 JTBC 히든싱어5 E04 예고 - 다영&은서
+https://drive.google.com/a/llit.kr/uc?authuser=0&id=1IWL8rPozUE8olEDnRWNJvf9hYoSRE-IP
+
+http://sendanywhe.re/3571MMPD
+
 # 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.05完整版[20180701]
 
 [TS] 180701 MBC 두니아 처음만난세계 E05 - 루다
