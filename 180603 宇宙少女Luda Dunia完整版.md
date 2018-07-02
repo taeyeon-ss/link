@@ -1,4 +1,7 @@
 
+【Produce48】【直拍】张元英 - I.O.I(Very Very Very)1组@组合对决 180629 EP.3
+https://youtu.be/SSPGPp6oSL4
+
 【Produce48】【直拍】崔艺娜 - I.O.I(Very Very Very)1组@组合对决 180629 EP.3
 https://youtu.be/H-zS2nGLGd4
 
@@ -7,7 +10,7 @@ https://youtu.be/H-zS2nGLGd4
 PRODUCE48 [단독/직캠] 일대일아이컨택ㅣ안유진 - I.O.I ♬너무너무너무_1조 @그룹 배틀 180629 EP.3 安宥真
 https://youtu.be/4W0rmTvzUI8
 
-一对一的目光接触
+一对一的目光接触  星船  乐华娱乐
 
 【Produce48】【直拍】赵佳贤 OOH-AHH 2组@组合对决 180629 EP.3
 https://youtu.be/bJaek6yBj7A
