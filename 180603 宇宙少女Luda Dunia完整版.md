@@ -16,6 +16,11 @@ http://www.vlive.tv/video/77672
 [당신의 하우스헬퍼] 제작발표회 생중계 / [Your Househelper] FULL LIVE on Press Conference
 
 
+P91 
+https://www.youtube.com/watch?v=5lha0dD4ucs
+
+P92
+https://www.youtube.com/watch?v=BHWh9ScoTxw
 
 【Produce48】【直拍】王怡人 - Red Velvet(Peek-A-Boo)1组@组合对决 180629 EP.3
 https://youtu.be/watch?v=bewpqGqKKGc
