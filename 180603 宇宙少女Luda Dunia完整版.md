@@ -1,11 +1,13 @@
 
-
+一对一的目光接触
 
 【Produce48】【直拍】赵佳贤 OOH-AHH 2组@组合对决 180629 EP.3
 https://youtu.be/bJaek6yBj7A
 
 【Produce48】【直拍合集】 OOH-AHH 组合对决(Group Battle) 180629 EP.3
 https://www.youtube.com/user/PlayMnet/videos
+
+https://tv.naver.com/cjenm.produce48/clips
 
 # 宇宙少女多荣恩熙《隐藏的歌手5》EP.04预告[20180702]
 
