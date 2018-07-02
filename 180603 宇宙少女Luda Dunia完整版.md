@@ -1,5 +1,9 @@
 
 
+
+【Produce48】【直拍】王怡人 - Red Velvet(Peek-A-Boo)1组@组合对决 180629 EP.3
+https://youtu.be/watch?v=bewpqGqKKGc
+
 【Produce48】【直拍】金诗炫 - AOA(Short Hair)1组@组合对决 180629 EP.3
 https://youtu.be/2l43HyWQKFk
 
