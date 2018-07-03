@@ -1,4 +1,21 @@
 
+
+# 宇宙少女Luda俞延静LIFETIME《UP!Pretty》EP.11完整版[20180702]
+
+[TS]180702 LIFETIME UP! Pretty E11-루다&연정
+http://mgnet.me/drtm9K8
+
+http://sendanywhe.re/KZ25ZATQ
+
+https://drive.google.com/a/llit.kr/uc?id=1s-B-gEefitz9otbQLcQ6XcQ9Zz3ndK8d
+
+180702.업!프리티11회.루다x연정(링크수정)
+
+구드링크1 - http://twr.kr/Ppus
+
+구드링크2 - http://twr.kr/BDcz
+
+# 
 https://uptobox.com/70m4qh6smlwf
 
 # 【Produce48】加油！加油！<是我的>练习现场 幕后花絮 180703 
