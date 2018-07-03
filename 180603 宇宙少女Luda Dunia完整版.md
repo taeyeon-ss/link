@@ -15,6 +15,8 @@ https://drive.google.com/a/llit.kr/uc?id=1s-B-gEefitz9otbQLcQ6XcQ9Zz3ndK8d
 
 구드링크2 - http://twr.kr/BDcz
 
+https://www.ok.ru/video/1227083352761
+
 # 
 https://uptobox.com/70m4qh6smlwf
 
