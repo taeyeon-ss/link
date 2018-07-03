@@ -6,6 +6,13 @@ https://www.clipconverter.cc/
 # TV Naver
 http://d8.online-downloader.com/
 
+# dcinside
+http://gall.dcinside.com/board/lists/?id=cosmicgirl
+
+http://gall.dcinside.com/mgallery/board/lists/?id=wjsntv
+
+http://gall.dcinside.com/mgallery/board/lists/?id=produce48
+
 
 # 远程控制
 https://ultraviewer.net/en/download.html
