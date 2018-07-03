@@ -1,4 +1,15 @@
 
+
+
+# 【Produce48】加油！加油！<是我的>练习现场 幕后花絮 180703 
+[48 비하인드] (아자아자♥) ＜내꺼야＞ 연습 현장 비하인드
+
+https://tv.naver.com/v/3531130
+
+[ 48幕后花絮]（Acazzzaza）充实我的练习现场幕后花絮
+
+
+
 # 180702001
 https://www.youtube.com/watch?v=4r1WdJ1nMcw&list=PL7d9SABxcP1L3ysK4M9bbCM-opz_6kuka
 
