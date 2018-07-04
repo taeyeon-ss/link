@@ -1,5 +1,36 @@
 
-# K-wave Festival
+
+
+# 宇宙少女苞娜《你的管家》EP.01完整版[20180704]
+http://gall.dcinside.com/board/view/?id=cosmicgirl&no=644203&page=1
+
+[TS] 180704 당신의 하우스헬퍼 1회 우주소녀 보나
+https://sendanywhe.re/L883UMWU
+
+https://drive.google.com/file/d/11BDsbawscqWDRgwRY7K9Ht2vlOha7fdk/view?usp=sharing
+
+https://drive.google.com/file/d/1fh42I5snG8-6p1ljr1QNtrH8XpSPz7wD/view?usp=sharing
+
+https://sendanywhe.re/81E3LBUW
+
+
+# 宇宙少女苞娜《你的管家》EP.01-2完整版[20180704]
+[TS] 180704 당신의 하우스 헬퍼 E01, 02-보나 Cut&풀본
+
+보나 Cut 
+http://sendanywhe.re/747JWHWS
+
+https://drive.google.com/a/llit.kr/uc?id=14s9j-JnzeA1w_XNvSahGaTy2J54zSoPf
+
+http://attach.mail.daum.net/bigfile/v1/urls/d/r0jrKTvFyZKpHD55iu1IjauBQgo/XmxhyOLtemOgYS7aN6efCw
+
+풀본 http://mgnet.me/druA7qe
+
+http://sendanywhe.re/72XIYDNP
+
+https://drive.google.com/a/llit.kr/uc?id=1UaUIfspCWKh2yGl4QnXYXm0dVuU38vWW
+
+# K-wave Festival 180704
 https://www.instagram.com/p/BkxDtoznsqD/
 
 
