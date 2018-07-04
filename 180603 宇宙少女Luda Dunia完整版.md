@@ -20,11 +20,6 @@ https://drive.google.com/file/d/1fh42I5snG8-6p1ljr1QNtrH8XpSPz7wD/view?usp=shari
 https://sendanywhe.re/81E3LBUW
 
 # 官方片段
-https://tv.naver.com/v/3544559
-
-https://tv.naver.com/v/3544573
-
-
 
 https://tv.naver.com/v/3542802 苞娜，男主第一次相遇
 
