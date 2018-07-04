@@ -19,6 +19,45 @@ https://drive.google.com/file/d/1fh42I5snG8-6p1ljr1QNtrH8XpSPz7wD/view?usp=shari
 
 https://sendanywhe.re/81E3LBUW
 
+# 官方片段
+https://tv.naver.com/v/3544559
+
+https://tv.naver.com/v/3544573
+
+
+
+https://tv.naver.com/v/3542802 苞娜，男主第一次相遇
+
+https://tv.naver.com/v/3544593 吃便当
+
+https://tv.naver.com/v/3544751 唱歌
+
+https://tv.naver.com/v/3544703 男主被泼水 | 苞娜家
+
+https://tv.naver.com/v/3544768 苞娜被抓走
+
+https://tv.naver.com/v/3544760 苞娜打电话
+
+https://tv.naver.com/v/3544559 苞娜 CCTV自言自语
+
+https://tv.naver.com/v/3544671 苞娜 公司
+
+https://tv.naver.com/v/3544723 男主
+
+https://tv.naver.com/v/3544594 男主2
+
+https://tv.naver.com/v/3544696 乙烯垃圾旋风
+
+https://tv.naver.com/v/3544555 男主
+
+https://tv.naver.com/v/3544573 苞娜打电话
+
+https://tv.naver.com/v/3544550 男主
+
+https://tv.naver.com/v/3544554 男主修理
+
+# 搜索
+https://tv.naver.com/v/3542802?query=%EB%8B%B9%EC%8B%A0%EC%9D%98+%ED%95%98%EC%9A%B0%EC%8A%A4%ED%97%AC%ED%8D%BC&plClips=false:3544554:3463627:3544550:3544573:3544555:3544696:3544594:3544723:3544671:3544559:3544760:3544768:3544703:3544751:3544593:3542802:3523862:3526372:3526364:3526368:3526366:3515028:3490028:3490025:3525615:3525322:3439736:3439716:3439714:3526998:3525899:3526469:3402387:3402382:3526202:3527011:3525227:3525657:3525148:3524856
 
 # 宇宙少女苞娜《你的管家》EP.01-2完整版[20180704]
 http://gall.dcinside.com/board/view/?id=cosmicgirl&no=644217&page=1
