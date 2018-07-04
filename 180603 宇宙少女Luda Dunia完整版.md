@@ -1,5 +1,11 @@
 
 
+# 宇宙少女Luda DUNIA EP.05 080704 
+
+180704 두니아-처음 만난 세계 스페셜 루다ver
+https://drive.google.com/file/d/1t2vie7VS6g3jckyBBmeqGohwKGkCzmCr/view
+
+https://send-anywhere.com/web/downloads/789F2VUC
 
 # 【Produce48】【48TV】少女们的首次自拍 180704
 https://youtu.be/1lSZVR9NY0A
