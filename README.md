@@ -148,6 +148,13 @@ http://filetodrive.thetimetube.com/
 
 https://savetodrive.net/
 
+# 【google drive => openload.co】【1080P => 保存720P 再上传到B站】
+
+http://www.saveitoffline.com/ 粘贴Google Drive链接，直接下载或者上传到Openload.co
+
+https://openload.co/account
+
+
 # DRIVE  izhua,php
 https://drive.bynder.com/assets
 
