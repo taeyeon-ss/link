@@ -1,6 +1,6 @@
 
 
-# 宇宙少女Luda DUNIA EP.05 080704 
+# 宇宙少女Luda DUNIA Luda特别版 EP.05 080704 
 
 180704 두니아-처음 만난 세계 스페셜 루다ver
 https://drive.google.com/file/d/1t2vie7VS6g3jckyBBmeqGohwKGkCzmCr/view
