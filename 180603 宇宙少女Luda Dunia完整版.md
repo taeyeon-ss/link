@@ -1,4 +1,8 @@
 
+https://openload.co/f/VVE_iWi7INs
+
+http://www.dasiyo.net/bbs/board.php?bo_table=drama&wr_id=2808
+
 https://ontvfree.blogspot.com/2018/07/1-2-e01180704.html?m=0
 
 # 宇宙少女苞娜《你的管家》EP.01完整版[20180704]
