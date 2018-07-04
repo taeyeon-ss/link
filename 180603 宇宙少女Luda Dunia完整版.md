@@ -1,5 +1,20 @@
 
 
+
+# 【Produce48】【48TV】少女们的首次自拍 180704
+https://youtu.be/1lSZVR9NY0A
+
+【Produce48】【48TV】少女们的首次自拍|朴海允→珠理奈→孙恩采→萌咲 180704
+
+张元英
+
+https://srv36.clipconverter.cc/download/q5DHo5Jm36SwZ2tslpeZaG5l5KWmqWxu4pSYa2lmoWRmaHC0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F48TV%5D%20%EC%86%8C%EB%85%80%EB%93%A4%EC%9D%98%20%EC%B2%AB%20%EC%85%80%ED%94%84%EC%BA%A0%20l%20%ED%95%B4%EC%9C%A4%E2%86%92%EC%A5%AC%EB%A6%AC%EB%82%98%E2%86%92%EC%9D%80%EC%B1%84%E2%86%92%EB%AA%A8%EC%97%90%20180629%20EP.3.mp4
+
+
+朴海允→珠理奈→孙恩采→萌咲
+
+朴海允 松井珠理奈 孙恩采 后藤萌咲
+
 # 宇宙少女Luda俞延静LIFETIME《UP!Pretty》EP.11完整版[20180702]
 
 [TS]180702 LIFETIME UP! Pretty E11-루다&연정
