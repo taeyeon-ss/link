@@ -15,6 +15,8 @@ https://sendanywhe.re/81E3LBUW
 
 
 # 宇宙少女苞娜《你的管家》EP.01-2完整版[20180704]
+http://gall.dcinside.com/board/view/?id=cosmicgirl&no=644217&page=1
+
 [TS] 180704 당신의 하우스 헬퍼 E01, 02-보나 Cut&풀본
 
 보나 Cut 
