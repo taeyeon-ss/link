@@ -148,11 +148,19 @@ http://filetodrive.thetimetube.com/
 
 https://savetodrive.net/
 
+http://convert-video-online.com 先转换成直链
+
+https://save.thoaimedia.com  直接上传到油管
+
+http://youtubeupload.atomurl.net
+
 # 【google drive => openload.co】【1080P => 保存720P 再上传到B站】
 
 http://www.saveitoffline.com/ 粘贴Google Drive链接，直接下载或者上传到Openload.co
 
 https://openload.co/account
+
+https://bdupload.info/  ***** 【远程上传到油管】【savetioffline上传速度快】【haop, p1】
 
 
 # DRIVE  izhua,php
