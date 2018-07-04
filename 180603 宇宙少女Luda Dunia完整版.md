@@ -5,8 +5,10 @@ http://www.dasiyo.net/bbs/board.php?bo_table=drama&wr_id=2808
 
 https://ontvfree.blogspot.com/2018/07/1-2-e01180704.html?m=0
 
-# 宇宙少女苞娜《你的管家》EP.01完整版[20180704]
+# 宇宙少女苞娜 你的管家 E01-E02 180704
 http://gall.dcinside.com/board/view/?id=cosmicgirl&no=644203&page=1
+
+金知妍 
 
 [TS] 180704 당신의 하우스헬퍼 1회 우주소녀 보나
 https://sendanywhe.re/L883UMWU
