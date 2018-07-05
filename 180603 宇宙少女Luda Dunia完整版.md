@@ -1,6 +1,13 @@
 
 
 
+# 宇宙少女苞娜《你的管家》片段[20180704]
+https://youtu.be/wPs3dFTZnPA
+
+https://www.youtube.com/user/DramaKBS/videos
+
+https://www.youtube.com/watch?v=wPs3dFTZnPA&list=PL7d9SABxcP1JmJWLTH-q0c8i0AzN7I_lG
+
 # 宇宙少女苞娜《你的管家》第一集3分钟回顾+下集预告[20180705]
 
 [3분리뷰]당신의하우스헬퍼(1회)Created by 이지은
