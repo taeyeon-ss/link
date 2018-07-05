@@ -1,5 +1,16 @@
 
 
+# 【Produce48】【MSG新闻】'Produce48'的秘密？正式开始！Mnet职员的自拍照！180705
+https://youtu.be/hxB8DxNBCgI
+
+"엠넷 평직원이 전하는 엠넷의 모든 소식"
+[MSG뉴스] 1회 : 불안한 런칭
+
+'프로듀스48'의 비밀? 본격! 엠넷직원의 셀프 폭로! [MSG뉴스]
+
+https://srv74.clipconverter.cc/download/rNbHcISa4qewZ2tsl5uTcXFo5KWmqXBs4pSYa2lomGdtZ2%2B0qc%2FMqHyf1qiZpa2d2A%3D%3D/%27%ED%94%84%EB%A1%9C%EB%93%80%EC%8A%A448%27%EC%9D%98%20%EB%B9%84%EB%B0%80%3F%20%EB%B3%B8%EA%B2%A9%21%20%EC%97%A0%EB%84%B7%EC%A7%81%EC%9B%90%EC%9D%98%20%EC%85%80%ED%94%84%20%ED%8F%AD%EB%A1%9C%21%20%5BMSG%EB%89%B4%EC%8A%A4%5D.mp4
+
+
 # 宇宙少女恩熙 随机游戏Ep.02[20180705]
 http://www.vlive.tv/video/78798
 
