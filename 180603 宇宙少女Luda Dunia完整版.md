@@ -1,5 +1,16 @@
 
 
+
+# 宇宙少女苞娜《你的管家》第一集3分钟回顾+下集预告[20180705]
+
+[3분리뷰]당신의하우스헬퍼(1회)Created by 이지은
+https://youtu.be/PUMtZY-tshs
+
+180705 당신의하우스헬퍼 예고
+https://youtu.be/W9nBvnVYrdA
+
+金知妍 
+
 # 
 【Produce48】【花絮】主题曲<是我的>MCD舞台拍摄现场 幕后花絮 180705
 https://youtu.be/zlXtvOtCBdo
