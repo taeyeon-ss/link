@@ -16,6 +16,9 @@ https://youtu.be/PUMtZY-tshs
 180705 당신의하우스헬퍼 예고
 https://youtu.be/W9nBvnVYrdA
 
+[#EP3-4.] 지운☞다영 "필요합니까? 제 도움이?" <당신의 하우스헬퍼>
+http://www.vlive.tv/video/78676?channelCode=D4F547
+
 金知妍 
 
 # 
