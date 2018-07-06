@@ -1,3 +1,11 @@
+
+
+### 【Produce48】OOH-AHH 1组 @组合对决 180706 EP.4
+
+PRODUCE48 [4회] ′탄산음료 같은 시원함′ 푱ㅣ트와이스 ♬OOH-AHH하게_1조 @그룹 배틀 180706 EP.4
+
+https://youtu.be/HhRRwa7Vju8
+
 ### 【Produce48】BOOMBAYAH 2组 @组合对决 180706 EP.4
 
 PRODUCE48 [4회] ′희망이 보이는 것 같아요′ SNACKㅣ블랙핑크 ♬붐바야_2조 @그룹 배틀 180706 EP.4
