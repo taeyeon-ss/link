@@ -1,4 +1,23 @@
 
+# 【Produce48】KARA(Mamma Mia) 1组 @组合对决 180706 EP.4
+
+PRODUCE48 [4회] ′국.프님의 마음을 물들이다′ 아이섀도우ㅣ카라 ♬맘마미아_1조 @그룹 배틀 180706 EP.4
+
+https://youtu.be/L6gVoepvhbA
+
+# 【Produce48】AOA(Short Hair) 2组 @组合对决 180706 EP.4
+
+PRODUCE48 [4회] ′우리 같이 드라마 만들어요′ 하이클래스ㅣAOA ♬단발머리_2조 @그룹 배틀 180706 EP.4
+
+https://youtu.be/UxgCJEb94q4
+
+# 【Produce48】AOA(Short Hair) 1组 @组合对决 180706 EP.4
+
+PRODUCE48 [단독/4회] '쳐다만 봐도 매력이 뿜뿜' 빼꼼빼꼼ㅣAOA ♬단발머리_1조 @그룹 배틀 180706 EP.4
+
+https://youtu.be/6PAsf45NRzk
+
+金诗炫
 
 # 【Produce48】Peek-A-Boo 1组 @组合对决 180706 EP.4
 https://youtu.be/YZUq3nuEIfM
