@@ -1,5 +1,11 @@
 
 
+# 【Produce48】PRODUCE 48 练习生的暗箱任务 接力赛！180706
+
+Mnet '프로듀스48' '연습생 히든박스 미션' 릴레이 스트리밍!
+https://youtu.be/nKv10lF2KPY
+
+Mnet‘PRODUCE 48’‘练习生的箱子任务’接力赛！
 
 
 
