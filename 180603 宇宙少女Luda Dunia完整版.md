@@ -1,6 +1,12 @@
 【Produce48】【合集】组合对决 180706 EP.4
 
 
+### 【Produce48】OOH-AHH 2组 @组合对决 180706 EP.4
+
+PRODUCE48 [4회] ′초조함은 이제 안녕~′ 너꺼야♡ㅣ트와이스 ♬OOH-AHH하게_2조 @그룹 배틀 180706 EP.4
+
+https://youtu.be/TeBS-CZEFMk
+
 ### 【Produce48】OOH-AHH 1组 @组合对决 180706 EP.4
 
 PRODUCE48 [4회] ′탄산음료 같은 시원함′ 푱ㅣ트와이스 ♬OOH-AHH하게_1조 @그룹 배틀 180706 EP.4
