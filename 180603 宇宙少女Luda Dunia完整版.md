@@ -1,5 +1,13 @@
 
 
+# 宇宙少女苞娜《你的管家》片段[合集][20180704]
+https://youtu.be/UulWNcRG4YU
+
+https://www.youtube.com/user/DramaKBS/videos
+
+Bona 180705001
+https://www.youtube.com/watch?v=UulWNcRG4YU&list=PL7d9SABxcP1Lrcd9wbkhNOFsI3wgEfcDT
+
 # 宇宙少女苞娜《你的管家》EP.03-04完整版[20180705]
 
 [TS] 180705 당신의 하우스 헬퍼 E03, 04-보나 Cut&풀본
