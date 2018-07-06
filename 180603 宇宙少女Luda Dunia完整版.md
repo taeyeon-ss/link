@@ -1,7 +1,17 @@
+
+### 【Produce48】下周预告 第一个排名发表仪式，究竟结果是？180706 EP.4
+
+PRODUCE48 [NEXT WEEK] 첫 번째 순위 발표식, 과연 그 결과는? 180706 EP.4
+
+https://youtu.be/9CW3Zjtrtts
+
 【Produce48】【合集】组合对决 180706 EP.4
 
+### 【Produce48】Very Very Very 1组 @组合对决 180706 EP.4
 
+PRODUCE48 [4회] ′이런 게 바로 상큼′ 믹스주스ㅣI.O.I ♬너무너무너무_1조 @그룹 배틀 180706 EP.4
 
+https://youtu.be/wo1_es8vOXQ
 
 ### 【Produce48】Very Very Very 2组 @组合对决 180706 EP.4
 
