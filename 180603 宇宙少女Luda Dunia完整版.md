@@ -1,3 +1,14 @@
+### 【Produce48】BOOMBAYAH 2组 @组合对决 180706 EP.4
+
+PRODUCE48 [4회] ′희망이 보이는 것 같아요′ SNACKㅣ블랙핑크 ♬붐바야_2조 @그룹 배틀 180706 EP.4
+
+https://youtu.be/e8W7hs95hYI
+
+### 【Produce48】BOOMBAYAH 1组 @组合对决 180706 EP.4
+
+PRODUCE48 [단독/4회] ′스웩만점 실력파′ BLACK WORLDㅣ블랙핑크 ♬붐바야_1조 @그룹 배틀 180706 EP.4
+
+https://youtu.be/xbV8devAocI
 
 ## 【Produce48】High Tension 2组 @组合对决 180706 EP.4
 PRODUCE48 [4회] ′파워 끝판왕′ 텐션업걸즈ㅣAKB48 ♬하이텐션_2조 @그룹 배틀 180706 EP.4
