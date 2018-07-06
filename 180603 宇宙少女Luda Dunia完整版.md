@@ -21,7 +21,7 @@ https://www.facebook.com/produce101/videos/666777806991546/ 张元英
 
 https://www.facebook.com/produce101/videos/666807880321872/ 崔艺娜
 
-https://www.facebook.com/produce101/videos/666806156988711/ 小嶋 真子  코지마 마코
+https://www.facebook.com/produce101/videos/666806156988711/ 小嶋 真子（AKB48）코지마 마코
 
 https://www.facebook.com/produce101/videos/666789920323668/ 权恩菲 권은비(울림) 
 
