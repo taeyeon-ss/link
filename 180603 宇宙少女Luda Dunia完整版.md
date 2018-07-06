@@ -1,17 +1,28 @@
 
 
-https://s57.123apps.com/vcutter/d/s57FzvXnKXp.flv
+# 宇宙少女苞娜《你的管家》EP.03-04完整版[20180705]
 
-【Produce48】EP4预告 话题的中心！BOOMBAYA2组，他们的故事180704
+[TS] 180705 당신의 하우스 헬퍼 E03, 04-보나 Cut&풀본
+보나 Cut 
+http://sendanywhe.re/0855KFBO
+
+https://drive.google.com/a/llit.kr/uc?id=1Xyf2zMBamR8yI3b1ZNs6jUdveOc4FdeA
+
+풀본 
+http://mgnet.me/druEfnW
+
+http://sendanywhe.re/P4MKGFVC
+
+https://drive.google.com/a/llit.kr/uc?id=1W91sNxmFC22_0X5Fm4hhschPJadwA1Oi
+
+http://gall.dcinside.com/board/view/?id=cosmicgirl&no=644714
+
+# 【Produce48】EP4预告 话题的中心！BOOMBAYA2组，他们的故事180704
 https://youtu.be/K3686Q6tcAc
 
 PRODUCE48 [4회/예고] 화제의 중심 붐바야 2조, 그들의 이야기 180706 EP.4
 
 https://srv37.clipconverter.cc/download/zcq5m66VuZ2wZ2tsl5uXaHBn5KWmqWxv4pSYa2lomGprZWu0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B4%ED%9A%8C%2F%EC%98%88%EA%B3%A0%5D%20%ED%99%94%EC%A0%9C%EC%9D%98%20%EC%A4%91%EC%8B%AC%20%EB%B6%90%EB%B0%94%EC%95%BC%202%EC%A1%B0%2C%20%EA%B7%B8%EB%93%A4%EC%9D%98%20%EC%9D%B4%EC%95%BC%EA%B8%B0%20180706%20EP.4.mp4
-
-#
-
-https://s41.123apps.com/vcutter/d/s41fpEuHUdW.flv
 
 # 【Produce48】【MSG新闻】'Produce48'的秘密？正式开始！Mnet职员的自拍照！180705
 https://youtu.be/hxB8DxNBCgI
