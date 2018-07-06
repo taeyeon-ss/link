@@ -1,5 +1,16 @@
 
 
+# 【Produce48】Peek-A-Boo 1组 @组合对决 180706 EP.4
+https://youtu.be/YZUq3nuEIfM
+
+PRODUCE48 [4회] ′국.프님들 마음에 CHU~′ 피카chuㅣ레드벨벳 ♬피카부_1조 @그룹 배틀 180706 EP.4
+
+王怡人
+
+# 【Produce48】Peek-A-Boo 2组 @组合对决 180706 EP.4
+https://youtu.be/ep4YfKCwOlY
+PRODUCE48 [4회] ′실전에 강하다!′ 흐흥이 난 여우ㅣ레드벨벳 ♬피카부_2조 @그룹 배틀 180706 EP.4
+
 # 
 稍等一下.11点在Mnet播出的‘PRODUCE 48’第四集中
 
