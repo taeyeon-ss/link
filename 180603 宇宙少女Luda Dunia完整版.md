@@ -1,6 +1,14 @@
 【Produce48】【合集】组合对决 180706 EP.4
 
 
+
+
+### 【Produce48】Very Very Very 2组 @组合对决 180706 EP.4
+
+PRODUCE48 [4회] ′화제의 어벤져스′ 베리베리 라즈베리ㅣI.O.I ♬너무너무너무_2조 @그룹 배틀 180706 EP.4
+
+https://youtu.be/aFmSqTuWs_k
+
 ### 【Produce48】OOH-AHH 2组 @组合对决 180706 EP.4
 
 PRODUCE48 [4회] ′초조함은 이제 안녕~′ 너꺼야♡ㅣ트와이스 ♬OOH-AHH하게_2조 @그룹 배틀 180706 EP.4
