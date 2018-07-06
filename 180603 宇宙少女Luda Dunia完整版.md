@@ -1,4 +1,20 @@
 
+## 【Produce48】High Tension 2组 @组合对决 180706 EP.4
+PRODUCE48 [4회] ′파워 끝판왕′ 텐션업걸즈ㅣAKB48 ♬하이텐션_2조 @그룹 배틀 180706 EP.4
+
+https://youtu.be/MCm-iuKwdbQ
+
+## 【Produce48】High Tension 1组 @组合对决 180706 EP.4
+PRODUCE48 [4회] ′텐션 UP!′ 파워레인보우ㅣAKB48 ♬하이텐션_1조 @그룹 배틀 180706 EP.4
+
+https://youtu.be/PX6uTaC6Gs8
+
+## 【Produce48】KARA(Mamma Mia) 2组 @组合对决 180706 EP.4
+
+PRODUCE48 [4회] ′돌아갈 곳은 없다′ (오마이갓) 어떡하조?ㅣ카라 ♬맘마미아_2조 @그룹 배틀 180706 EP.4
+
+https://youtu.be/gTuFCChFBc0
+
 # 【Produce48】KARA(Mamma Mia) 1组 @组合对决 180706 EP.4
 
 PRODUCE48 [4회] ′국.프님의 마음을 물들이다′ 아이섀도우ㅣ카라 ♬맘마미아_1조 @그룹 배틀 180706 EP.4
