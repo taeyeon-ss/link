@@ -1,5 +1,16 @@
 
 
+# 【Produce48】【先公开】 组合对决评价 OOH-AHH 180706 EP.4
+
+PRODUCE48 [단독/선공개] 그룹 배틀 평가 ♬우아하게 180706 EP.4
+
+https://youtu.be/gWAeM1fQWwg
+
+https://srv77.clipconverter.cc/download/urSonmmC3qewZ2tsmJeUa2pi5KWmqXBv4pSYa2lonWtkam20qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%84%A0%EA%B3%B5%EA%B0%9C%5D%20%EA%B7%B8%EB%A3%B9%20%EB%B0%B0%ED%8B%80%20%ED%8F%89%EA%B0%80%20%E2%99%AC%EC%9A%B0%EC%95%84%ED%95%98%EA%B2%8C%20180706%20EP.4.mp4
+
+赵佳贤
+
+
 # 宇宙少女苞娜《你的管家》片段[合集][20180705]
 https://youtu.be/UulWNcRG4YU
 
