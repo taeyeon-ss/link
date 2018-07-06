@@ -9,7 +9,33 @@ https://twitter.com/AhnYujinIntl/status/1015170446742835200?s=19
 https://twitter.com/mnet_produce48/status/1015149472110637056?s=19
 
 张元英
-https://twitter.com/mnet_produce48/status/1015149678424309760?s=19
+https://twitter.com/mnet_produce48/status/1015149678424309760
+
+# 【Produce48】国民制作人的应援 国民的花园1阶段认证！合集 180706
+
+http://fbdown.net/
+
+https://www.facebook.com/produce101/videos/666772650325395/ 安宥真
+
+https://www.facebook.com/produce101/videos/666777806991546/ 张元英
+
+https://www.facebook.com/produce101/videos/666807880321872/ 崔艺娜
+
+https://www.facebook.com/produce101/videos/666806156988711/ 小嶋 真子  코지마 마코
+
+https://www.facebook.com/produce101/videos/666789920323668/ 权恩菲 권은비(울림) 
+
+https://www.facebook.com/produce101/videos/666784040324256/ 白間 美瑠（NMB48）
+
+https://www.facebook.com/produce101/videos/666782530324407/ 矢吹 奈子（HKT48）야부키 나코
+
+https://www.facebook.com/produce101/videos/666777623658231/ 竹内 美宥（AKB48）타케우치 미유
+
+https://www.facebook.com/produce101/videos/666683687000958/ 李佳恩 イ・カウン（PLEDIS）이가은(플레디스) 
+
+https://www.facebook.com/produce101/videos/666681197001207/ 後藤 萌咲（AKB48） 고토 모에
+
+https://www.facebook.com/produce101/videos/666681557001171/ 宮脇 咲良（HKT48） 미야와키 사쿠라
 
 # 【Produce48】【先公开】 组合对决评价 OOH-AHH 180706 EP.4
 
