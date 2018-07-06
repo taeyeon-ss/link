@@ -1,5 +1,11 @@
 
 
+
+
+
+# 礼物应援认证
+https://twitter.com/AhnYujinIntl/status/1015170446742835200?s=19
+
 # 【Produce48】【先公开】 组合对决评价 OOH-AHH 180706 EP.4
 
 PRODUCE48 [단독/선공개] 그룹 배틀 평가 ♬우아하게 180706 EP.4
