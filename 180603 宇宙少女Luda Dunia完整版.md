@@ -17,6 +17,23 @@ https://drive.google.com/a/llit.kr/uc?id=1W91sNxmFC22_0X5Fm4hhschPJadwA1Oi
 
 http://gall.dcinside.com/board/view/?id=cosmicgirl&no=644714
 
+# 
+[TS] 180705 당신의 하우스헬퍼 2회 보나 Cut
+
+http://sendanywhe.re/41T49IHU
+
+http://drive.google.com/file/d/1fwK8y5kScu7EAzT9y1DzZREJRMiCtFqh/view?usp=sharing
+
+[TS] 180705 당신의 하우스헬퍼 2회 (우주소녀 보나)
+
+http://sendanywhe.re/048BYQHM
+	
+http://sendanywhe.re/26CFNY3H
+
+http://drive.google.com/file/d/1vzb1Lc4wcCA3r9paQrs47K3LpEOxtNTD/view?usp=sharing
+
+http://drive.google.com/file/d/1Y4MbKsGQUYYFLgYHxt_PGaK5UHK5I4VK/view?usp=sharing
+
 # 【Produce48】EP4预告 话题的中心！BOOMBAYA2组，他们的故事180704
 https://youtu.be/K3686Q6tcAc
 
