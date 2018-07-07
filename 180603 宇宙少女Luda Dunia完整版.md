@@ -1,4 +1,13 @@
 
+
+
+# 宇宙少女Luda《皇室战争》亚洲联赛MC主持饭拍[合集][20180707]
+
+https://twitter.com/m1n_luda/status/1015537861695664128
+
+#GIF
+https://twitter.com/m1n_luda/status/1015540479985795072
+
 # Luda Dunia录制 机场饭拍 180706
 https://www.instagram.com/p/Bk5Xz5OAcw-/?utm_source=ig_share_sheet&igshid=9wi6dkmowg9p
 
