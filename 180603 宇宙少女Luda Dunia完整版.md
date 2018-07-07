@@ -4,6 +4,13 @@
 
 https://twitter.com/PaiParadise/status/1015539363688603651
 
+https://www.youtube.com/watch?v=9m0AuxGP_FE 完整版
+
+部落冲突:皇室战争
+
+클래시 로얄 리그 아시아
+https://www.youtube.com/channel/UCHckjM64zrnMdB-D8cvuPew
+
 # 宇宙少女Luda《皇室战争》亚洲联赛MC主持饭拍[合集][20180707]
 
 https://twitter.com/m1n_luda/status/1015537861695664128
