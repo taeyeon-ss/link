@@ -1,4 +1,12 @@
 
+
+# 宇宙少女苞娜《你的管家》1-2回的幕后花絮[20180707]
+http://www.vlive.tv/video/79061
+
+[V LIVE] [#세번째 메이킹/1-2회 비하인드컷] 극한직업chapter1. "달리고 달리고 다영이는 달리고~"
+
+http://globalv.p.naverrmc.edgesuite.net/global/read/global_v_2018_07_06_8/98cbb944-80f9-11e8-9f62-000000008ca5.mp4?__gda__=1530954549_e1563df68345ed6dda760722c9597a8f
+
 ### 【Produce48】下周预告 第一个排名发表仪式，究竟结果是？180706 EP.4
 
 PRODUCE48 [NEXT WEEK] 첫 번째 순위 발표식, 과연 그 결과는? 180706 EP.4
