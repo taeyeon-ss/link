@@ -1,5 +1,8 @@
 
 
+# 宇宙少女Luda《皇室战争》亚洲联赛MC主持Cut[合集][20180707]
+
+https://twitter.com/PaiParadise/status/1015539363688603651
 
 # 宇宙少女Luda《皇室战争》亚洲联赛MC主持饭拍[合集][20180707]
 
