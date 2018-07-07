@@ -7,6 +7,8 @@ http://www.vlive.tv/video/79061
 
 http://globalv.p.naverrmc.edgesuite.net/global/read/global_v_2018_07_06_8/98cbb944-80f9-11e8-9f62-000000008ca5.mp4?__gda__=1530954549_e1563df68345ed6dda760722c9597a8f
 
+https://s49.123apps.com/vcutter/d/s49GpcT6k1r.flv
+
 ### 【Produce48】下周预告 第一个排名发表仪式，究竟结果是？180706 EP.4
 
 PRODUCE48 [NEXT WEEK] 첫 번째 순위 발표식, 과연 그 결과는? 180706 EP.4
