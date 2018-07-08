@@ -11,6 +11,18 @@
 
 # 宇宙少女Luda Dunia EP.06 完整版[20180708]
 
+http://gall.dcinside.com/board/view/?id=cosmicgirl&no=645569&page=2
+
+# 完整版
+https://drive.google.com/file/d/1dnJH0MFa7XV_oKo8GBwkhVTbEb3wt1LZ/view?usp=sharing
+
+# 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.06 Cut[合集][20180708]
+
+[TS] 180708 두니아 6회 풀본 & 루다 컷본
+
+# Luda Cut
+https://drive.google.com/file/d/1xx8vLi4ZPclhprIZMDJeSHyOM2p1PtGl/view?usp=sharing
+
 # 宇宙少女苞娜《你的管家》5,6回预告[20180708]
 https://tv.naver.com/v/3551858
 
