@@ -18,6 +18,11 @@ https://sendanywhe.re/07FO6SIE
 # 完整版
 https://drive.google.com/file/d/1dnJH0MFa7XV_oKo8GBwkhVTbEb3wt1LZ/view?usp=sharing
 
+720P
+https://torrent.tax/b/torrent_kortv_ent-52838?sfl=wr_subject%7C%7Cwr_content&stx=8&sop=and
+
+magnet:?xt=urn:btih:E579A10A007C8EC0173163790AC39F18D6D7E7A1
+
 # 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.06 Cut[合集][20180708]
 
 [TS] 180708 두니아 6회 풀본 & 루다 컷본
