@@ -18,7 +18,7 @@ https://sendanywhe.re/07FO6SIE
 # 完整版
 https://drive.google.com/file/d/1dnJH0MFa7XV_oKo8GBwkhVTbEb3wt1LZ/view?usp=sharing
 
-720P
+두니아 처음 만난 세계.E06.180708.720p-NEXT
 https://torrent.tax/b/torrent_kortv_ent-52838?sfl=wr_subject%7C%7Cwr_content&stx=8&sop=and
 
 magnet:?xt=urn:btih:E579A10A007C8EC0173163790AC39F18D6D7E7A1
