@@ -26,6 +26,9 @@ https://torrent.tax/b/torrent_kortv_ent-52838?sfl=wr_subject%7C%7Cwr_content&stx
 
 magnet:?xt=urn:btih:E579A10A007C8EC0173163790AC39F18D6D7E7A1
 
+720P 转换版
+https://s49.123apps.com/vconv/d/s49VNDB78xk.mp4
+
 # 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.06 Cut[合集][20180708]
 
 [TS] 180708 두니아 6회 풀본 & 루다 컷본
