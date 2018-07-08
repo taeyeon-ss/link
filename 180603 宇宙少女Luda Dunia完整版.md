@@ -2,6 +2,14 @@
 
 # 宇宙少女多荣恩熙《隐藏的歌手5》EP.X[20180708]
 
+[TS] 180708 JTBC 히든싱어5 E04 - 다영&은서
+
+http://mgnet.me/drvDdL9	2018.07.09 01:37:32	삭제버튼
+
+http://sendanywhe.re/9P6RN7WO	2018.07.09 01:37:41	삭제버튼
+
+https://drive.google.com/a/llit.kr/uc?id=1ZfHMGkGWPC76AQSeXOHiDIQ4VcvlwXU7
+
 [#WJSN]
 #우주소녀 #은서 #다영 이가 함께하는
 #JTBC #히든싱어5
