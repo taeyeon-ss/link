@@ -9,6 +9,10 @@
 #우정 들 모두 #본방사수 📺💕
 #놓치지마세요 🙌
 
+[JTBC] 히든싱어5.E03.180701.1080p-NEXT
+
+https://downrose.com/bbs/search.php?url=https%3A%2F%2Fdownrose.com%2Fbbs%2Fsearch.php&stx=%ED%9E%88%EB%93%A0%EC%8B%B1%EC%96%B45
+
 # 宇宙少女Luda Dunia EP.07 下周预告[20180708]
 https://www.youtube.com/watch?v=VNJMe5to04k
 
