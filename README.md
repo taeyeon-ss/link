@@ -77,6 +77,9 @@ https://drive.google.com/file/d/1mO9ajKFsrTCjKXVcuwqsnqRw4wpLNe7T/view?usp=shari
 # SolveigMM.Video.Splitter.5.2.1512.16.zip
 https://drive.google.com/file/d/1_7tIQ-1D8XKuUZBh2mRHaSGXq3zZM4aV/view?usp=sharing
 
+# IDM + https://www.clipconverter.cc 多线程下载
+https://drive.google.com/file/d/1-fKn0LE845wuQ7H-4SW_VgHVNznLOFEZ/view?usp=sharing
+
 # pavtube
 https://drive.google.com/file/d/1inV-MiXq2DbQRziWovTRAPMVCNMc0dZu/view?usp=sharing
 
