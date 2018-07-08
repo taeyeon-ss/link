@@ -11,7 +11,11 @@ https://www.youtube.com/watch?v=9m0AuxGP_FE 完整版
 클래시 로얄 리그 아시아
 https://www.youtube.com/channel/UCHckjM64zrnMdB-D8cvuPew
 
+720P
 https://srv91.clipconverter.cc/download/qdi4fomjuJmwZ2tsmZqZbGli5KWmqXJp4pSYa2lpoGpkZmq0qc%2FMqHyf1qiZpa2d2A%3D%3D/%ED%81%B4%EB%9E%98%EC%8B%9C%20%EB%A1%9C%EC%96%84%20%EB%A6%AC%EA%B7%B8%20%EC%95%84%EC%8B%9C%EC%95%84%20-%20%ED%94%8C%EB%A0%88%EC%9D%B4%EC%98%A4%ED%94%84.mp4
+
+1080P
+https://srv74.clipconverter.cc/download/38rIjo6muqGwZ2tsmZqZbGli5KWmqXBs4pSYa2pgnGptZmq0qc%2FMqHyf1qiZpa2d2A%3D%3D/%ED%81%B4%EB%9E%98%EC%8B%9C%20%EB%A1%9C%EC%96%84%20%EB%A6%AC%EA%B7%B8%20%EC%95%84%EC%8B%9C%EC%95%84%20-%20%ED%94%8C%EB%A0%88%EC%9D%B4%EC%98%A4%ED%94%84.mp4
 
 # 宇宙少女Luda《皇室战争》亚洲联赛MC主持饭拍[合集][20180707]
 
