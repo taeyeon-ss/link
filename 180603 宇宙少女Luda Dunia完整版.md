@@ -9,6 +9,9 @@
 #우정 들 모두 #본방사수 📺💕
 #놓치지마세요 🙌
 
+# 宇宙少女Luda Dunia EP.07 下周预告[20180708]
+https://www.youtube.com/watch?v=VNJMe5to04k
+
 # 宇宙少女Luda Dunia EP.06 完整版[20180708]
 
 http://gall.dcinside.com/board/view/?id=cosmicgirl&no=645569&page=2
