@@ -1,5 +1,22 @@
 
 
+# 宇宙少女苞娜《你的管家》5,6回预告[20180708]
+https://tv.naver.com/v/3551858
+
+https://www.youtube.com/watch?v=BsW3LQWZkg4
+
+EP5,6预告
+https://srv81.clipconverter.cc/download/uLvbjql4wIuwZ2tsmpaabmpm5KWmqXFp4pSYa2pgnWVqY2m0qc%2FMqHyf1qiZpa2d2A%3D%3D/180711%20%EB%8B%B9%EC%8B%A0%EC%9D%98%ED%95%98%EC%9A%B0%EC%8A%A4%ED%97%AC%ED%8D%BC%20%EC%98%88%EA%B3%A0.mp4
+
+EP.3 preview
+https://www.youtube.com/watch?v=yqy2zZ9TvpA
+
+https://r4---sn-25ge7nsk.googlevideo.com/videoplayback?mime=video/mp4&source=youtube&key=yt6&ei=bNtBW5vtJ9rN1gbuyaOACA&c=WEB&expire=1531064268&sparams=dur,ei,id,initcwndbps,ip,ipbits,itag,lmt,mime,mm,mn,ms,mv,pl,ratebypass,requiressl,source,expire&requiressl=yes&signature=543B74FE30B4A27083ABFBADB7D2F501F7FD408E.48A3C5F2210AD9717F45A133EB8701E770A4E11A&fexp=23709359&initcwndbps=473750&fvip=4&mm=31,29&ip=176.31.103.19&itag=22&mn=sn-25ge7nsk,sn-25glene6&ratebypass=yes&ipbits=0&id=o-ACvpJqz06zo4nc5drgE4uZyj4_ISVqV6atBGJyEu0uTY&dur=197.160&lmt=1530882709401836&pl=21&ms=au,rdu&mt=1531042553&mv=m&&title=%5B3%EB%B6%84%EB%A6%AC%EB%B7%B0%5D%EB%8B%B9%EC%8B%A0%EC%9D%98%ED%95%98%EC%9A%B0%EC%8A%A4%ED%97%AC%ED%8D%BC%282%ED%9A%8C%29Created+by+%EC%9D%B4%EC%A7%80%EC%9D%80
+
+# 宇宙少女Luda Dunia 6回预告 180708
+https://twitter.com/withMBC/status/1015792589763641345
+
+
 # 宇宙少女Luda《皇室战争》亚洲联赛MC主持Cut[合集][20180707]
 
 https://twitter.com/PaiParadise/status/1015539363688603651
@@ -27,6 +44,11 @@ https://twitter.com/Won_Shy/status/1015592750366904320 上班饭拍2
 
 #GIF
 https://twitter.com/m1n_luda/status/1015540479985795072
+
+高清饭拍 by luminous diary
+https://youtu.be/k0TLqUqXS-w
+
+https://r3---sn-25glen7r.googlevideo.com/videoplayback?requiressl=yes&source=youtube&mime=video/mp4&key=yt6&fvip=3&pl=21&ratebypass=yes&fexp=23709359&ei=-dlBW6HEIsGx1gbs8IeYAw&ip=176.31.240.13&lmt=1531038230769599&mt=1531041747&mv=u&sparams=dur,ei,id,ip,ipbits,itag,lmt,mime,mm,mn,ms,mv,pl,ratebypass,requiressl,source,expire&ms=au,rdu&ipbits=0&mm=31,29&mn=sn-25glen7r,sn-25ge7nsk&dur=52.639&id=o-AB9gW3SffhSrJ_k-G3eVrVLGX-4QFDkCRyAbsUYnLp2V&itag=22&expire=1531063897&c=WEB&signature=D731876ACF54C778023C6287B2F0E1540331DE5D.689AE7AB9D1B037E7EE713777FDFFCBB43909B08&&title=180707+%ED%81%B4%EB%9E%98%EC%8B%9D%EB%A1%9C%EC%96%84+MC+%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%85%80+%EB%A3%A8%EB%8B%A4
 
 # Luda Dunia录制 机场饭拍 180706
 https://www.instagram.com/p/Bk5Xz5OAcw-/?utm_source=ig_share_sheet&igshid=9wi6dkmowg9p
