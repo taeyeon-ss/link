@@ -38,6 +38,8 @@ https://sendanywhe.re/3BMPUEPK
 # Luda Cut
 https://drive.google.com/file/d/1xx8vLi4ZPclhprIZMDJeSHyOM2p1PtGl/view?usp=sharing
 
+https://www.youtube.com/watch?v=AjCHhpuJwtI&list=PL7d9SABxcP1LaWwtJkAD_s9L0QJ_7Vtoi
+
 # 宇宙少女苞娜《你的管家》5,6回预告[20180708]
 https://tv.naver.com/v/3551858
 
