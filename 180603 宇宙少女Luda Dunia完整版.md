@@ -5,6 +5,12 @@ PRODUCE48 [직캠] 센터 단독 세로캠ㅣ미야와키 사쿠라 - ♬내꺼�
 
 https://youtu.be/3EkshpX5_AQ
 
+# 180708 JTBC 隐藏的歌手 S5E04 中字
+http://www.dailymotion.com/video/k4g1dmkh1dO74JrhOn7
+
+http://www.dailymotion.com/video/k2AIGEBU6YrzeyrhOnC
+
+https://www.telechargerunevideo.com/en/
 
 # 宇宙少女多荣恩熙《隐藏的歌手5》EP.04 完整版[20180708]
 
