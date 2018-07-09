@@ -21,6 +21,30 @@ https://drive.google.com/a/llit.kr/uc?id=1ZfHMGkGWPC76AQSeXOHiDIQ4VcvlwXU7
 
 https://downrose.com/bbs/search.php?url=https%3A%2F%2Fdownrose.com%2Fbbs%2Fsearch.php&stx=%ED%9E%88%EB%93%A0%EC%8B%B1%EC%96%B45
 
+# eunseo & dayoung support k.will in 'hidden singer 5' 🎶
+
+https://youtu.be/7yEDtu7Cezw
+
+https://youtu.be/20305TZVTbo
+
+https://youtu.be/UrYEWOftqhA
+
+https://youtu.be/1QtOuMjqVlg
+
+https://youtu.be/y1HhBhIsixw
+
+https://youtu.be/qBt7vCo_5pU
+
+https://youtu.be/uCk0xtZj0GE
+
+https://youtu.be/Hv7ZHGXiDc0
+
+https://youtu.be/TErHgaomk7U
+
+https://youtu.be/Wbs778Ss2HA
+
+https://youtu.be/jdFoHSlxaaY
+
 # 宇宙少女Luda Dunia EP.07 下周预告[20180708]
 https://www.youtube.com/watch?v=VNJMe5to04k
 
