@@ -1,4 +1,25 @@
 
+
+# 宇宙少女Luda艺能研究所采访《Dunia》幕后花絮[20180710]
+
+[예능연구소 인터뷰] 두니아 ~처음 만난 루다 비하인드~ @두니아~처음 만난 세계_ LUDA
+
+LUDA BEHIND
+@ MBC [Dunia: Into a new world] 
+
+https://youtu.be/_yznUsx9Tx0
+
+P1
+https://srv64.clipconverter.cc/download/q7m1gqSl2oiwZ2tsnJOZb29h5KWmqW9s4pSYa2pimWhmZ2q0qc%2FMqHyf1qiZpa2d2A%3D%3D/%5B%EC%98%88%EB%8A%A5%EC%97%B0%EA%B5%AC%EC%86%8C%20%EC%9D%B8%ED%84%B0%EB%B7%B0%5D%20%EB%91%90%EB%8B%88%EC%95%84%20~%EC%B2%98%EC%9D%8C%20%EB%A7%8C%EB%82%9C%20%EB%A3%A8%EB%8B%A4%20%EB%B9%84%ED%95%98%EC%9D%B8%EB%93%9C~%20%40%EB%91%90%EB%8B%88%EC%95%84~%EC%B2%98%EC%9D%8C%20%EB%A7%8C%EB%82%9C%20%EC%84%B8%EA%B3%84_%20LUDA.mp4
+
+P2
+https://s37.123apps.com/vcutter/d/s373Ez37i2h.flv
+
+IDM + https://www.clipconverter.cc 多线程下载
+https://drive.google.com/file/d/1-fKn0LE845wuQ7H-4SW_VgHVNznLOFEZ/view?usp=sharing
+
+https://member.bilibili.com/v/video/submit.html
+
 # 【Produce48】【合集】主题曲竖版直拍 宫XXXX - 是我的 180706  EP.4
 
 PRODUCE48 [직캠] 센터 단독 세로캠ㅣ미야와키 사쿠라 - ♬내꺼야 180706 EP.4
