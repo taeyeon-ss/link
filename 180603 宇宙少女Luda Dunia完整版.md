@@ -1,4 +1,9 @@
 
+# 宇宙少女'V Dispatch'开张祝贺视频[20180710]
+
+Welcome Opening for 'V Dispatch' 우주소녀 (WJSN
+
+https://www.vlive.tv/video/79547
 
 # 宇宙少女Luda艺能研究所采访《Dunia》幕后花絮[20180710]
 
