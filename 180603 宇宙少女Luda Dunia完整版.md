@@ -1,5 +1,10 @@
 
 
+
+https://www.facebook.com/produce101/videos/670882493247744/  山田 野絵（NGT48）
+
+https://www.facebook.com/produce101/videos/670859319916728/  李诗安 이시안（STONE MUSIC）
+
 https://www.facebook.com/produce101/videos/670851373250856/  김채원 金彩元（Woollim）
 
 https://www.facebook.com/produce101/videos/670851069917553/  허윤진 许允真（PLEDIS）
