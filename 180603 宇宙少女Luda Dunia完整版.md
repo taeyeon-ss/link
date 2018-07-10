@@ -1,6 +1,18 @@
 
 
 
+https://www.facebook.com/produce101/videos/670748949927765/  장규리（STONE MUSIC）
+
+https://www.facebook.com/produce101/videos/670769669925693/  本田 仁美（AKB48）
+
+https://www.facebook.com/produce101/videos/670795846589742/  千葉 恵里（AKB48）
+
+https://www.facebook.com/produce101/videos/670818499920810/  조유리（STONE MUSIC）
+
+https://www.facebook.com/produce101/videos/670819606587366/  高橋 朱里（AKB48）
+
+https://www.facebook.com/produce101/videos/670826323253361/  村川 緋杏（HKT48）
+
 【Produce48】王怡人(乐华) 国民制作人的应援 国民的花园1阶段认证！ 180710
 
 프로듀스48ㅣ왕이런(위에화) 국프의 정원 1단계 인증!
