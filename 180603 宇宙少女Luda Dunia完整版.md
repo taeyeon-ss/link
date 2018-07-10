@@ -1,5 +1,9 @@
 
 
+# 宇宙少女Luda《访问教师》Mnet短视频[20180710]
+https://twitter.com/MnetKR/status/1016561142796152832
+
+##
 
 https://www.facebook.com/produce101/videos/670882493247744/  山田 野絵（NGT48）
 
