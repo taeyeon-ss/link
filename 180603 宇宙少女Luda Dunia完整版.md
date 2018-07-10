@@ -1,5 +1,10 @@
 
 
+https://www.facebook.com/produce101/videos/670851373250856/  김채원 金彩元（Woollim）
+
+https://www.facebook.com/produce101/videos/670851069917553/  허윤진 许允真（PLEDIS）
+
+#
 
 https://www.facebook.com/produce101/videos/670846176584709/  宮崎 美穂（AKB48）
 
