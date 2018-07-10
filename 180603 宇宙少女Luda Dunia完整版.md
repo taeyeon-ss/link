@@ -1,5 +1,5 @@
 
-# 宇宙少女'V Dispatch'开张祝贺视频[20180710]
+# 宇宙少女'V Dispatch'开通祝贺视频[20180710]
 
 Welcome Opening for 'V Dispatch' 우주소녀 (WJSN
 
