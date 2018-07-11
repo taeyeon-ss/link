@@ -4,6 +4,9 @@
 #  宇宙少女苞娜 180711
 https://youtu.be/2H4m-y4q8PI
 
+https://r1---sn-25ge7nsk.googlevideo.com/videoplayback?dur=163.863&id=o-AO1DoWo0BpvgDBF7N5pFQLHKtvLHF5b6C73krB8zojQX&source=youtube&pl=21&ratebypass=yes&fexp=23709359,23745105&requiressl=yes&lmt=1531264582322032&mime=video/mp4&sparams=dur,ei,id,initcwndbps,ip,ipbits,itag,lmt,mime,mm,mn,ms,mv,pl,ratebypass,requiressl,source,expire&expire=1531307037&c=WEB&signature=30F6D9C0117551C76BD78DB0E4F30BFBE3526CD6.194EB4315DBEAFCA2DA37ACDEC23674E897F90A0&ms=au,onr&ipbits=0&initcwndbps=396250&mv=m&mt=1531285353&fvip=1&mn=sn-25ge7nsk,sn-4g5e6n7d&itag=22&mm=31,26&ei=vY9FW5bnFZWZhAeE-azgCQ&key=yt6&ip=149.202.138.161&&title=%5B%EB%8B%B9%EC%8B%A0%EC%9D%98%ED%95%98%EC%9A%B0%EC%8A%A4%ED%97%AC%ED%8D%BC%5D+%EB%8B%A4%EC%98%81%28%EB%B3%B4%EB%82%98%29+%EB%84%88%EB%8F%84+%EC%9D%B8%ED%84%B4%EC%9D%B4%EB%8B%88+%21%21%21%21%21
+
+
 #
 
 https://s59.123apps.com/vcutter/d/s59zNXMQzhU.mp4
