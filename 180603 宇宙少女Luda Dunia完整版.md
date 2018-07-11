@@ -1,5 +1,11 @@
 
 
+# 宇宙少女雪娥Luda人气歌谣+KBO联赛开球 幕后花絮[20180711]
+
+https://www.vlive.tv/video/79679
+
+http://globalv.p.naverrmc.edgesuite.net/global/read/navertv_2018_07_11_125/cce2e6eb-84d6-11e8-9ebf-0000000041ed.mp4?__gda__=1531305623_a1de2c140bb24b9eba9e6e9c03c518e3
+
 # 宇宙少女秀份 - Slowly 训南正音 Part.7 The Undateables OST Part.7[20180711]
 
 수빈 (우주소녀) - Slowly 훈남정음 OST Part.7 The Undateables OST Part.7
