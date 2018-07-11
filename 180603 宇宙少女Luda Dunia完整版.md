@@ -1,5 +1,11 @@
 
 
+
+#  宇宙少女苞娜 180711
+https://youtu.be/2H4m-y4q8PI
+
+#
+
 https://s59.123apps.com/vcutter/d/s59zNXMQzhU.mp4
 
 # 【Produce48】【幕后花絮】“颤抖的第一个评价！”组合对决评价现场的幕后花絮 180706 P.4
