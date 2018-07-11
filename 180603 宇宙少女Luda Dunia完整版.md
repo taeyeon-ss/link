@@ -1,6 +1,8 @@
 
 
-# 宇宙少女雪娥Luda人气歌谣+KBO联赛开球 幕后花絮[20180711]
+# 宇宙少女雪娥Luda人气歌谣+KBO联赛开球 幕后花絮[UZZU TAPE][20180711]
+
+[UZZU TAPE] EP.48 설루의 하루♥
 
 https://www.vlive.tv/video/79679
 
