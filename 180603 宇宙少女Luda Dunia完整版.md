@@ -1,4 +1,7 @@
 
+# 【Produce48】【幕后花絮】“颤抖的第一个评价！”组合对决评价现场的幕后花絮 180706 P.4
+
+
 
 https://s59.123apps.com/vcutter/d/s59zNXMQzhU.flv
 
