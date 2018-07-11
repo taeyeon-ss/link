@@ -6,6 +6,8 @@
 
 https://www.vlive.tv/video/79679
 
+https://www.youtube.com/watch?v=2LdCpLG6jzM
+
 http://globalv.p.naverrmc.edgesuite.net/global/read/navertv_2018_07_11_125/cce2e6eb-84d6-11e8-9ebf-0000000041ed.mp4?__gda__=1531305623_a1de2c140bb24b9eba9e6e9c03c518e3
 
 # 宇宙少女秀份 - Slowly 训南正音 Part.7 The Undateables OST Part.7[20180711]
