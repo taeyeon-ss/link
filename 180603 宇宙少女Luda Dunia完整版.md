@@ -1,5 +1,22 @@
 
 
+# 宇宙少女秀份 - Slowly 训南正音 Part.7 The Undateables OST Part.7[20180711]
+
+수빈 (우주소녀) - Slowly 훈남정음 OST Part.7 The Undateables OST Part.7
+
+Single: 수빈 (우주소녀) - 훈남정음 OST Part.7
+Release Date: 2018.07.11
+Genre: OST
+
+Track List:
+01. Slowly
+
+https://www.youtube.com/watch?v=qnGc1GpJq_I
+
+朴秀份
+
+https://www.youtube.com/watch?v=XdUlZeE1saw
+
 # 宇宙少女应援 新闻 180710
 https://twitter.com/exel_ler/status/1016662768961798150
 
