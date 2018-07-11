@@ -1,4 +1,29 @@
 
+https://www.facebook.com/produce101/videos/671976576471669/  罗高恩 나고은（RBW）
+
+https://www.facebook.com/produce101/videos/671978636471463/  本村碧唯（HKT48）
+
+https://www.facebook.com/produce101/videos/671974956471831/  岩立沙穂（AKB48）
+
+https://www.facebook.com/produce101/videos/671972676472059/  李宥姃 이유정（CNC）
+
+https://www.facebook.com/produce101/videos/671956259807034/  村濑纱英（NMB48）
+
+https://www.facebook.com/produce101/videos/671951606474166/  中西智代梨（AKB48）
+
+https://www.facebook.com/produce101/videos/671948506474476/  金镀我 김도아（FENT）
+
+https://www.facebook.com/produce101/videos/671947859807874/  姜惠元 강혜원（8D）
+
+https://www.facebook.com/produce101/videos/671889666480360/  李彩燕 이채연（WM）
+
+https://www.facebook.com/produce101/videos/671887929813867/  浅井七海（AKB48）
+
+https://www.facebook.com/produce101/videos/671885029814157/  武藤十梦（AKB48）
+
+https://www.facebook.com/produce101/videos/671884309814229/  裵恩英 배은영（STONE MUSIC）
+
+https://www.facebook.com/produce101/videos/671877673148226/  下尾美羽 下尾みう（AKB48）
 
 # 宇宙少女雪娥Luda人气歌谣+KBO联赛开球 幕后花絮[UZZU TAPE][20180711]
 
