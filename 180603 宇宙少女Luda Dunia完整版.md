@@ -1,5 +1,8 @@
 
 
+# 宇宙少女应援 新闻 180710
+https://twitter.com/exel_ler/status/1016662768961798150
+
 
 #  宇宙少女苞娜 180711
 https://youtu.be/2H4m-y4q8PI
