@@ -6,17 +6,13 @@ PRODUCE48 [48스페셜] 내꺼야(PICK ME) 클로즈업 Ver. 180706 EP.4
 
 https://youtu.be/HDXQ7z6IaR8
 
-https://srv61.clipconverter.cc/download/tM%2FFgrOfu6ewZ2tsnpSbbmpk5KWmqW9p4pSYa2pjoWpkam20qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B48%EC%8A%A4%ED%8E%98%EC%85%9C%5D%20%EB%82%B4%EA%BA%BC%EC%95%BC%28PICK%20ME%29%20%ED%81%B4%EB%A1%9C%EC%A6%88%EC%97%85%20Ver.%20180706%20EP.4.mp4
-
-https://s40.123apps.com/vcutter/d/s406cB1CuQK.flv
-
-https://s40.123apps.com/vcutter/d/s406cB1CuQK.mp4
-
 # 宇宙少女苞娜《你的管家》7-8回预告[20180711]
 
 [7-8회 예고] 진국☞♥상아♥ 밥 한번 사주시겠습니까..? ＜당신의 하우스헬퍼＞
 
 https://tv.naver.com/v/3591394
+
+https://youtu.be/5kpyEVy7M_s
 
 
 # 【Produce48】【48TV】分组对抗 等候室自拍 180706 EP.4
