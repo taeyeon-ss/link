@@ -1,3 +1,23 @@
+
+
+# 宇宙少女苞娜《你的管家》EP07-08 [20180712] 
+
+[TS] 180712 당신의 하우스 헬퍼 E07, 08-보나 Cut&풀본
+
+보나 Cut 
+http://sendanywhe.re/883Z4IIE
+
+https://drive.google.com/a/llit.kr/uc?id=1HOMgHsnbLWVrGmb9jFDvkyhvJEPj4rAj
+
+http://attach.mail.daum.net/bigfile/v1/urls/d/W5XolY5wqdcyJOtv_947_JI4dXo/4kQpteJF96BKt_6Jk-cydw
+
+풀본 
+http://mgnet.me/drwF2E6
+
+http://sendanywhe.re/98B36HIL
+
+https://drive.google.com/a/llit.kr/uc?id=1RHnAOw8QXiushIRkgJI7Y0fAMRYUBKsk
+
 https://3arb.club/%D8%AA%D8%AD%D9%85%D9%8A%D9%84-4k-youtube-to-mp3-3-3-7-1819-multilingual/
 
 # 【Produce48】【特别版】是我的(PICK ME) 特写版 180706 EP.4
