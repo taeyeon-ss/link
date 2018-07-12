@@ -1,11 +1,16 @@
 
+# 宇宙少女苞娜《你的管家》7-8回预告[20180711]
+
+[7-8회 예고] 진국☞♥상아♥ 밥 한번 사주시겠습니까..? ＜당신의 하우스헬퍼＞
+
+https://tv.naver.com/v/3591394
 
 
-https://youtu.be/_RZ3EA98I_8
+# 【Produce48】【48TV】分组对抗 等候室自拍 180706 EP.4
 
 PRODUCE48 [48TV] 그룹배틀 대기실 셀프캠♪ l 수현→유진→시현 180706 EP.4
 
-# 【Produce48】【48TV】分组对抗 等候室自拍 180706 EP.4
+https://youtu.be/_RZ3EA98I_8
 
 # 宇宙少女苞娜《你的管家》片段[合集][20180711]
 https://www.youtube.com/watch?v=hKFM36CTPjA
