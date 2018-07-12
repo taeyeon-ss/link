@@ -6,6 +6,12 @@ https://www.youtube.com/watch?v=hKFM36CTPjA
 
 https://www.youtube.com/user/DramaKBS/videos
 
+#$ EP7-8 Preview
+https://youtu.be/UMakYn9gaYU
+
+#$ 第三集回顾
+https://www.youtube.com/watch?v=IJy-wmG6seE
+
 # Bona 你的管家 EP.5-6
 https://www.youtube.com/watch?v=hKFM36CTPjA&list=PL7d9SABxcP1Is2cKjXFLcA9fBUHyUXuH5
 
