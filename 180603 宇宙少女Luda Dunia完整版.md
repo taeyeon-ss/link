@@ -1,5 +1,14 @@
 
 
+# 宇宙少女苞娜《你的管家》应援餐车[20180712]
+https://twitter.com/StanWJSN13/status/1017594343584980992
+
+# 宇宙少女苞娜《你的管家》E07-08片段[合集][20180712]
+
+https://www.youtube.com/watch?v=1Lx4gun7iiI
+
+https://www.youtube.com/watch?v=1Lx4gun7iiI&list=PL7d9SABxcP1KvoIqedCshPQhWS_c5oZ37
+
 # 宇宙少女苞娜《你的管家》EP07-08 [20180712] 
 
 [TS] 180712 당신의 하우스 헬퍼 E07, 08-보나 Cut&풀본
