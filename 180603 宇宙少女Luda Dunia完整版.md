@@ -1,4 +1,7 @@
+# 180627
+https://www.youtube.com/watch?v=My7IWeZFNH4
 
+https://www.youtube.com/watch?v=4pzhqbRNurM&t=20s
 
 # 宇宙少女苞娜《你的管家》应援餐车[20180712]
 https://twitter.com/StanWJSN13/status/1017594343584980992
