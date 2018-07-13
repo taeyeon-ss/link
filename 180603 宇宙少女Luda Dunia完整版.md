@@ -1,4 +1,6 @@
 # 180627
+https://twitter.com/_24more/status/1017767701744254982
+
 https://www.youtube.com/watch?v=My7IWeZFNH4
 
 https://www.youtube.com/watch?v=4pzhqbRNurM&t=20s
