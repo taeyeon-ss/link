@@ -1,3 +1,28 @@
+
+
+# 宇宙少女恩熙多荣 Stairway Shuffle Challenge 终结者
+
+Eunseo and Dayoung shuffle challenge with Cover Brothers 😅👏
+
+https://www.youtube.com/watch?v=l0yGGL2accU  계단 셔플 챌린지 끝판왕
+
+계단 셔플 챌린지 커버영상을 커버에 커버해서 올려주세요!
+#우린 3명 까지 했다~ #몇 명까지 되는지 보자!
+#전 국민 계단 이용하기 캠페인 #커버브라더스가 재밌게 권해봅니다.
+#운동, 재미, 1석 2조ㅋㅋㅋ
+(feat. 우주소녀)
+
+https://www.youtube.com/watch?v=UeruzOtlJ8g  인싸들의 계단 올라가는 법
+
+계단 셔플 챌린지 커버영상을 커버에 커버해서 올려주세요!
+#상품은 #전국_계단_이용권
+#올라가기_싫은_계단 #신나게_올라가보자
+(feat. 우주소녀, 내보남)
+
+https://srv85.clipconverter.cc/download/zMzJf32FqaSwZ2ttlpSZbXJp5KWmqXFt4pSYa2pln2dmaGq0qc%2FMqHyf1qiZpa2d2A%3D%3D/%E1%84%80%E1%85%A8%E1%84%83%E1%85%A1%E1%86%AB%20%E1%84%89%E1%85%A7%E1%84%91%E1%85%B3%E1%86%AF%20%E1%84%8E%E1%85%A2%E1%86%AF%E1%84%85%E1%85%B5%E1%86%AB%E1%84%8C%E1%85%B5%20%EB%81%9D%ED%8C%90%EC%99%95.mp4
+
+https://r2---sn-25glenez.googlevideo.com/videoplayback?ratebypass=yes&mt=1531564305&mv=m&ms=au,onr&source=youtube&signature=95FBA14A5767A8E2C1C8875528CAA5C812380DAB.318F9704E8F78BB3D419C2F6149C95DDAE17A912&initcwndbps=467500&c=WEB&fvip=2&mm=31,26&mn=sn-25glenez,sn-4g5e6nle&id=o-AHQ_wFwVTOmAgd-1s-852SprYIsKfJko8WmSBT4ziSoa&requiressl=yes&ipbits=0&expire=1531586007&fexp=23709359,23745105&mime=video/mp4&key=yt6&sparams=dur,ei,id,initcwndbps,ip,ipbits,itag,lmt,mime,mm,mn,ms,mv,pl,ratebypass,requiressl,source,expire&itag=22&ei=dtFJW6CZO4Xm1ga_4q5o&ip=91.121.13.168&lmt=1531552393970449&pl=16&dur=51.617&&title=%EC%9D%B8%EC%8B%B8%EB%93%A4%EC%9D%98+%EA%B3%84%EB%8B%A8+%EC%98%AC%EB%9D%BC%EA%B0%80%EB%8A%94+%EB%B2%95
+
 # 9-10 预告
 https://www.youtube.com/watch?v=9CylqtikQNI
 
