@@ -7,6 +7,8 @@ https://www.vlive.tv/video/79858
 
 http://globalv.p.naverrmc.edgesuite.net/global/read/global_v_2018_07_12_111/1cebbf9d-85a5-11e8-987a-0000000049b9.mp4?__gda__=1531553556_55ab05c30ba09f7eb3ddd04c76a97db6
 
+https://s37.123apps.com/vcutter/d/s378hPKbFdt.flv
+
 # 宇宙少女苞娜《你的管家》OST [20180712]
 https://www.youtube.com/watch?v=ivyJq-0VYD8&t=0s&list=WL&index=177
 
