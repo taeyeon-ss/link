@@ -1,6 +1,6 @@
 
 
-# 宇宙少女恩熙多荣 Stairway Shuffle Challenge 终结者
+# 宇宙少女恩熙多荣 Stairway Shuffle Challenge 鬼步（曳步舞）Shuffle Dance 教学
 
 Eunseo and Dayoung shuffle challenge with Cover Brothers 😅👏
 
