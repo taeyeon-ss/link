@@ -2,6 +2,15 @@
 
 # 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.07 完整版[20180715]
 
+
+두니아 처음 만난 세계.E07.180715.720p-NEXT
+magnet:?xt=urn:btih:507ACFFE339A047CF8E137BB1C6599951E8228FB
+
+https://torrent.tax/b/torrent_kortv_ent-53028?sfl=wr_subject%7C%7Cwr_content&stx=E&sop=and
+
+magnet:?xt=urn:btih:b44b82a4bc6c35f6ad5e9fceefef9509c17fba74
+
+
 # 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.07 Cut[合集][20180715]
 [TS] 180715 MBC 두니아 처음만난세계 E07-루다 Cut&풀본
 
