@@ -1,5 +1,16 @@
 
 
+# 
+클래시 로얄 리그 아시아 - 결승전
+
+https://www.youtube.com/watch?v=GfkxOqkHf5U
+
+# GIF
+https://twitter.com/whyluda026/status/1018408734052085760
+
+https://twitter.com/whyluda026/status/1018409313830764549
+
+
 # 宇宙少女恩熙多荣 Stairway Shuffle Challenge 鬼步（曳步舞）Shuffle Dance 教学
 
 Eunseo and Dayoung shuffle challenge with Cover Brothers 😅👏
