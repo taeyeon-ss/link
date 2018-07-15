@@ -1,5 +1,17 @@
 
 
+# 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.07 完整版[20180715]
+
+# 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.07 Cut[合集][20180715]
+[TS] 180715 MBC 두니아 처음만난세계 E07-루다 Cut&풀본
+
+루다 컷 
+http://sendanywhe.re/UZ18ZGKY
+
+풀본 
+http://mgnet.me/drxD6J0
+
+http://sendanywhe.re/G97J4IPJ
 
 # 宇宙少女Luda《皇室战争》OGN亚洲联赛决赛MC主持Cut[合集][20180715]
 [TS]180715 OGN 클래시로얄 리그 아시아 FINAL-루다 Cut
@@ -7,6 +19,9 @@
 http://sendanywhe.re/Q4ROTNPW
 
 http://gall.dcinside.com/board/view/?id=cosmicgirl&no=648233&page=1
+
+180708.클래시로얄리그아시아플레이오프.루다.cut
+http://twr.kr/sUIr
 
 # 宇宙少女Luda《皇室战争》OGN亚洲联赛决赛MC主持饭拍[合集][20180715]
 
