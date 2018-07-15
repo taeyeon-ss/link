@@ -1,6 +1,15 @@
 
 
-# 
+
+# 宇宙少女Luda《皇室战争》OGN亚洲联赛决赛MC主持Cut[合集][20180715]
+[TS]180715 OGN 클래시로얄 리그 아시아 FINAL-루다 Cut
+
+http://sendanywhe.re/Q4ROTNPW
+
+http://gall.dcinside.com/board/view/?id=cosmicgirl&no=648233&page=1
+
+# 宇宙少女Luda《皇室战争》OGN亚洲联赛决赛MC主持饭拍[合集][20180715]
+
 클래시 로얄 리그 아시아 - 결승전
 
 https://www.youtube.com/watch?v=GfkxOqkHf5U
@@ -9,6 +18,11 @@ https://www.youtube.com/watch?v=GfkxOqkHf5U
 https://twitter.com/whyluda026/status/1018408734052085760
 
 https://twitter.com/whyluda026/status/1018409313830764549
+
+https://twitter.com/whyluda026/status/1018421437399384064
+
+https://twitter.com/HoiHoitWJ980527/status/1018439765593546752
+
 
 
 # 宇宙少女恩熙多荣 Stairway Shuffle Challenge 鬼步（曳步舞）Shuffle Dance 教学
