@@ -1,5 +1,10 @@
 
 
+
+# 
+PRODUCE48 [5회] 당신의 소녀에게 콘셉트를 정해주세요 180713 EP.5.mp4
+https://www.youtube.com/watch?v=XDots8g-aTI
+
 # 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.07 完整版[20180715]
 
 
@@ -21,6 +26,8 @@ http://sendanywhe.re/UZ18ZGKY
 http://mgnet.me/drxD6J0
 
 http://sendanywhe.re/G97J4IPJ
+
+https://www.youtube.com/user/MBCentertainment/videos
 
 # 宇宙少女Luda《皇室战争》OGN亚洲联赛决赛MC主持Cut[合集][20180715]
 [TS]180715 OGN 클래시로얄 리그 아시아 FINAL-루다 Cut
