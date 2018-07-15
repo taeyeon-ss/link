@@ -1,6 +1,15 @@
 
 http://wepaste.com/qqqq 111111
 
+# 1 下载twitter视频
+http://twittervideodownloader.com/download
+
+# 2 转换为.avi
+http://www.addaudiotovideo.com/
+
+# 3 无声.mp4转换为有声.mp4
+https://convert-video-online.com/
+
 # 8in1
 https://drive.google.com/file/d/1f-cHd4slTLPy7gYWjztV56c9qkg6Q9Su/view?usp=sharing
 
