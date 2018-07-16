@@ -1,4 +1,10 @@
 
+
+# 宇宙少女你的管家EP4剪辑[20180715]
+https://twitter.com/MyloveKBS/status/1018329305460269056
+
+https://www.youtube.com/watch?v=BQFyIpP8rxY
+
 # 
 180715 클래시로얄 결승전 우주소녀 루다 직캠 ( 180715 WJSN LUDA FANCAM)
 
