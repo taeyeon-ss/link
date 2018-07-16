@@ -1,5 +1,8 @@
 
+# 
+180715 클래시로얄 결승전 우주소녀 루다 직캠 ( 180715 WJSN LUDA FANCAM)
 
+https://youtu.be/uIPqyQPbHNI
 
 # 
 PRODUCE48 [5회] 당신의 소녀에게 콘셉트를 정해주세요 180713 EP.5.mp4
