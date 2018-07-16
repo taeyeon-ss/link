@@ -1,6 +1,9 @@
 # 宇宙少女多荣'比原作更肉麻的神秘森林颂！'[20180716]
 https://youtu.be/LNAm2vL0BIU
 
+들어는 봤나 신비강림송 공포ver.
+https://youtu.be/Fro3kHgo18k
+
 # 180715 MBC Dunia 初次遇見的世界 E07 中字
 https://openload.co/f/SuL5bLVBu4E
 
