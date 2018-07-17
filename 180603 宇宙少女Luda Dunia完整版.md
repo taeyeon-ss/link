@@ -1,3 +1,11 @@
+
+# 宇宙少女Luda《皇室战争》OGN亚洲联赛决赛MC主持饭拍[合集][20180715]
+https://www.youtube.com/watch?v=Ue8TVwBSK84
+
+https://www.youtube.com/watch?v=FNkzJaFsIYA
+
+https://www.youtube.com/watch?v=iY4r_T3A0vk
+
 # 宇宙少女多荣'比原作更肉麻的神秘森林颂！'[20180716]
 https://youtu.be/LNAm2vL0BIU
 
