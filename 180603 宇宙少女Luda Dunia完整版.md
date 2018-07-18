@@ -1,5 +1,16 @@
 
 
+# 【Produce48】【合集】分组对抗 EP.04
+https://www.youtube.com/watch?v=ya07NRAUqAk&list=PL7d9SABxcP1In0e8_HjYKKDO0hk7EGm-j
+
+https://www.facebook.com/produce101/videos/678651352470858/  朴海允 박해윤(FNC) 
+
+https://www.facebook.com/produce101/videos/678653549137305/  金敏书 김민서(HOW) 
+
+https://www.facebook.com/produce101/videos/678654089137251/  韩初媛 한초원(CUBE)
+
+https://www.facebook.com/produce101/videos/678654875803839/  宮脇 咲良（HKT48）
+
 # 宇宙少女Exy雪娥点唱机EP.6[20180718]
 
 [엑시/설아] 엑떨의 우쥬크박스🎧 Ep.06
