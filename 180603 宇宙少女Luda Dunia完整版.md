@@ -1,4 +1,9 @@
-
+Jumphost DNS Name
+vmex6ckk355nu7e.southcentralus.cloudapp.azure.com  
+Jumphost Password
+jU;|;8_3+m*]  
+Jumphost Username
+LabUser 
 
 
 #  宇宙少女苞娜《你的管家》EP9-10[20180718]
