@@ -1,5 +1,19 @@
 
 
+# 宇宙少女多荣x程潇《Soul Walker》Special O.S.T “成为星星的少女” 180718
+
+소울워커 | 이리스x성소 스페셜 O.S.T “별이 된 소녀”
+
+任多荣
+
+灵魂武器
+
+https://youtu.be/xbJhMatIzkw
+
+https://srv79.clipconverter.cc/download/s9qZn3qqvmmwZ2ttmZuYaXBn5KWmqXBx4pSYa2ppmWRka2q0qc%2FMqHyf1qiZpa2d2A%3D%3D/%EC%86%8C%EC%9A%B8%EC%9B%8C%EC%BB%A4%20%7C%20%EC%9D%B4%EB%A6%AC%EC%8A%A4x%EC%84%B1%EC%86%8C%20%EC%8A%A4%ED%8E%98%EC%85%9C%20O.S.T%20%E2%80%9C%EB%B3%84%EC%9D%B4%20%EB%90%9C%20%EC%86%8C%EB%85%80%E2%80%9D.mp4
+
+https://s41.123apps.com/vcutter/d/s415oA5pNEW.flv
+
 # 宇宙少女Luda《Dunia》宣传活动短视频[20180718]
 https://twitter.com/MBC_entertain/status/1019446746793926657
 
