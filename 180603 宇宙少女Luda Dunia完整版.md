@@ -1,5 +1,8 @@
 
 
+# 宇宙少女Luda《Dunia》宣传活动短视频[20180718]
+https://twitter.com/MBC_entertain/status/1019446746793926657
+
 # 宇宙少女苞娜《你的管家》Ep9-10预告[20180718]
 https://twitter.com/MyloveKBS/status/1019442891570237440
 
