@@ -1,8 +1,12 @@
 
 
+# 宇宙少女Exy雪娥点唱机EP.6[20180718]
 
+[엑시/설아] 엑떨의 우쥬크박스🎧 Ep.06
 
-PRODUCE48 프로듀스48 Concept Evaluation Songs (Long Preview) @ EP5 180713
+https://www.vlive.tv/video/80724
+
+# PRODUCE48 프로듀스48 Concept Evaluation Songs (Long Preview) @ EP5 180713
 
 https://www.youtube.com/watch?v=9L-Hk79SYNo
 
