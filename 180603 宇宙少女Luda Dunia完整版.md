@@ -1,5 +1,8 @@
 
 
+# 宇宙少女苞娜《你的管家》Ep9-10预告[20180718]
+https://twitter.com/MyloveKBS/status/1019442891570237440
+
 # 宇宙少女Exy恩熙 直播精选 随机舞蹈EP.2[20180717]
 [V PICK! HOW TO in V] 은서엑시의 랜덤댄스 (HOW TO DANCE WJSN’s Random dance)
 
