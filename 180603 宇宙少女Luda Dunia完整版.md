@@ -1,5 +1,19 @@
 
 
+
+#  宇宙少女苞娜《你的管家》EP9-10[20180718]
+
+[TS] 180718 당신의 하우스 헬퍼 E09, 10-보나 Cut&풀본
+
+보나 컷 
+http://sendanywhe.re/908TIRYA
+
+http://attach.mail.daum.net/bigfile/v1/urls/d/N4_J2WSGCc6PcsMmGd1w3X7bZKM/6G-39IeUy3QiMXrcjp03Aw
+
+풀본 http://mgnet.me/dryE0C9
+
+http://sendanywhe.re/L6ENAYEW
+
 # 【Produce48】【合集】分组对抗 EP.04
 https://www.youtube.com/watch?v=ya07NRAUqAk&list=PL7d9SABxcP1In0e8_HjYKKDO0hk7EGm-j
 
