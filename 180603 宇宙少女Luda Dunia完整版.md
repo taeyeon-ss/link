@@ -1,4 +1,10 @@
 
+
+【Produce48】挑战！眼神接触 | 王怡人 金诗炫 崔艺娜 - 乐华娱乐 180601
+
+https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=24275338
+
+
 # 【安宥真】麦克风，是我的！ | 安宥真、崔艺娜 180610
 
 https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=24628393
