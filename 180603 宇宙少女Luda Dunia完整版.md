@@ -1,3 +1,14 @@
+
+
+【直拍】一对一的目光接触 | 王怡人 主题曲 '是我的'（PICK ME）练习服版 180629 EP.3
+
+https://www.bilibili.com/video/av25737299/
+
+https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=25737299
+
+
+【Produce48】公司组合/个人练习生 等级评价舞台(完整版)合集 180625
+
 【合集】公司组合 等级评价舞台 180615 EP.01  --- Page 17
 
 https://i1.hdslb.com/bfs/archive/b44e57fa74dae4ed79b7b970fce91ee616784328.jpg
