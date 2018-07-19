@@ -1,6 +1,22 @@
-【Produce48】【特别版】是我的(PICK ME) 特写版 180706 EP.4
 
-【直拍】【合集】 组合对决(Group Battle) 180629 EP.3 <未改分P名>
+【花絮】星船Starship练习生 安宥真张元英赵佳贤 自我介绍 180516
+
+https://i2.hdslb.com/bfs/archive/183730f65ed5ff5433a803cc2b4d4866d8e7cfa6.jpg
+
+【花絮】乐华娱乐练习生 王怡人金诗炫崔艺娜 自我介绍 180514
+
+https://i0.hdslb.com/bfs/archive/1c5ef1793ab1e8f3f62993f6a387c22a16dc3161.jpg
+
+【花絮】主题曲《PICK ME》特别舞台最初公开！180510
+
+https://i2.hdslb.com/bfs/archive/c007c7e4224bfdffe2f1b786860229c25228f9b9.jpg
+
+【花絮】【特别版】是我的(PICK ME) 特写版 180706 EP.4
+
+https://i2.hdslb.com/bfs/archive/747373f4e597cbc5f8fc93b35b3766d3283430c7.jpg
+
+
+【直拍】【合集】 组合对决(Group Battle) 180629 EP.3
 
 【直拍】一对一的目光接触 | 王怡人 主题曲 '是我的'（PICK ME）练习服版 180629 EP.3
 
