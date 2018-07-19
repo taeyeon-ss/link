@@ -1,5 +1,14 @@
+【合集】公司组合 等级评价舞台 180615 EP.01  --- Page 17
 
+https://i1.hdslb.com/bfs/archive/b44e57fa74dae4ed79b7b970fce91ee616784328.jpg
 
+【合集】王怡人 崔艺娜 金诗炫 第一期Cut | 乐华娱乐 180615 EP.01  --- Page 16
+
+https://i0.hdslb.com/bfs/archive/be97dc61ecec438f2c0f5b81fe9bf4781c9144aa.jpg
+
+https://www.bilibili.com/video/av24978374/
+
+https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=24978374
 
 【安宥真】序言|PROLOGUE 选手试镜 集中分析 180615 E00
 
