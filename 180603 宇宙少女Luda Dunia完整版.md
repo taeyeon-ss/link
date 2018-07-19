@@ -1,7 +1,16 @@
 
 
 
-【Produce48】EP.1预告 终于！出现了！韩国学员的力量表现 180615
+【安宥真】序言|PROLOGUE 选手试镜 集中分析 180615 E00
+
+https://i2.hdslb.com/bfs/archive/504e8821ed9863ee2279664cdb1ff8115a1543ec.jpg
+
+https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=24950023
+
+
+https://www.bilibili.com/video/av24950023/
+
+【安宥真】EP.1预告 终于！出现了！韩国学员的力量表现 180615
 
 https://i1.hdslb.com/bfs/archive/a69147760c497e31640bcd238b96f5dcba7241b9.jpg
 
