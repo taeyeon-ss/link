@@ -1,4 +1,13 @@
 
+
+https://baltagy1.blogspot.com/2018/01/aiseesoft-total-video-converter-v9222.html
+
+https://baltagy1.blogspot.com/2018/03/formatfactory-v4-portable.html
+
+https://baltagy1.blogspot.com/2018/05/mediacoder-portable.html
+
+https://baltagy1.blogspot.com/2018/07/virtualbox-portable.html
+
 # 【MSG新闻】宇宙少女Luda《访问教师》'Tutor'[20180719]
 
 [ENG sub] 최애가 과외쌤이라면? 공부가 된다!? vs 안된다!? [MSG뉴스]
