@@ -1,7 +1,10 @@
 
 【花絮】暗箱任务| 王怡人 vs 王珂 180527
 
-https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=24005081
+https://i1.hdslb.com/bfs/archive/8ee3320aa4138ad8689d5f347d2b1280d7864f59.jpg
+
+https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=24007007
+
 
 【Produce48】挑战！眼神接触 | 王怡人 金诗炫 崔艺娜 - 乐华娱乐 180601
 
