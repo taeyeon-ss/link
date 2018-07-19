@@ -2,10 +2,15 @@
 
 【安宥真】'谁坐在首位！'终于开始了！预告 180611
 
-https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=24679602
+https://i1.hdslb.com/bfs/archive/119982bf924b8d6eb39b86bbd9dd0ef31ea46fb8.jpg
+
+https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=24678293
 
 
 https://www.bilibili.com/video/av24679602/
+
+
+https://www.bilibili.com/video/av24678293/
 
 【花絮】暗箱任务| 王怡人 vs 王珂 180527
 
