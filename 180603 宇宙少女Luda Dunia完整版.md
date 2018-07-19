@@ -1,4 +1,18 @@
 
+
+# 宇宙少女多荣的料理教室Ep.06[20180719]
+
+[다영] 다영이의 요리교실🍳 Ep.06
+
+https://www.vlive.tv/video/80859
+
+# 宇宙少女Exy雪娥 直播精华 点唱机EP.6[20180719]
+
+[WJSN] 노란 옷 입은 사람과 그 옆에 검은 옷 입은사람의 추천쏭🎶 (Exy&SeolA's music recommendation)
+
+https://www.vlive.tv/video/80921
+
+
 【花絮】星船Starship练习生 安宥真张元英赵佳贤 自我介绍 180516
 
 https://i2.hdslb.com/bfs/archive/183730f65ed5ff5433a803cc2b4d4866d8e7cfa6.jpg
