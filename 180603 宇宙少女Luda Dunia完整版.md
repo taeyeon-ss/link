@@ -1,5 +1,14 @@
 
 
+
+【Produce48】EP.1预告 终于！出现了！韩国学员的力量表现 180615
+
+https://i1.hdslb.com/bfs/archive/a69147760c497e31640bcd238b96f5dcba7241b9.jpg
+
+https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=24945383
+
+https://www.bilibili.com/video/av24945383/
+
 【安宥真】'谁坐在首位！'终于开始了！预告 180611
 
 https://i1.hdslb.com/bfs/archive/119982bf924b8d6eb39b86bbd9dd0ef31ea46fb8.jpg
