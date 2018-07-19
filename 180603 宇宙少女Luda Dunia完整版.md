@@ -1,4 +1,13 @@
 
+# 【MSG新闻】宇宙少女Luda《访问教师》'Tutor'[20180719]
+
+[ENG sub] 최애가 과외쌤이라면? 공부가 된다!? vs 안된다!? [MSG뉴스]
+
+https://youtu.be/bXXP40Pb61g
+
+https://srv77.clipconverter.cc/download/xdSpqKKRqX%2BwZ2ttm5SacW1i5KWmqXBv4pSYa2tgmmNpa2m0qc%2FMqHyf1qiZpa2d2A%3D%3D/%5BENG%20sub%5D%20%EC%B5%9C%EC%95%A0%EA%B0%80%20%EA%B3%BC%EC%99%B8%EC%8C%A4%EC%9D%B4%EB%9D%BC%EB%A9%B4%3F%20%EA%B3%B5%EB%B6%80%EA%B0%80%20%EB%90%9C%EB%8B%A4%21%3F%20vs%20%EC%95%88%EB%90%9C%EB%8B%A4%21%3F%20%5BMSG%EB%89%B4%EC%8A%A4%5D.mp4
+
+https://s51.123apps.com/vcutter/d/s513Cm7xrk0.flv
 
 # 宇宙少女多荣的料理教室Ep.06[20180719]
 
