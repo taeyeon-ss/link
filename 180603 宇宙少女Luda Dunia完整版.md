@@ -1,5 +1,8 @@
 
 
+
+
+
 https://baltagy1.blogspot.com/2018/01/aiseesoft-total-video-converter-v9222.html
 
 https://baltagy1.blogspot.com/2018/03/formatfactory-v4-portable.html
@@ -42,6 +45,11 @@ https://i0.hdslb.com/bfs/archive/1c5ef1793ab1e8f3f62993f6a387c22a16dc3161.jpg
 【花絮】主题曲《PICK ME》特别舞台最初公开！180510
 
 https://i2.hdslb.com/bfs/archive/c007c7e4224bfdffe2f1b786860229c25228f9b9.jpg
+
+https://www.bilibili.com/video/av23247292
+
+https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=23247292
+
 
 【花絮】【特别版】是我的(PICK ME) 特写版 180706 EP.4
 
