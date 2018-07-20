@@ -1,5 +1,20 @@
 
 
+# 【Produce48】安宥真 崔艺娜 Demi Lovato ♬Sorry Not Sorry @位置评价 180720 EP.6
+
+PRODUCE48 [단독/6회] ′프듀48 춤꾼 총집합′ 1등 할게! 미안해U~ㅣDemi Lovato ♬Sorry Not Sorry @포지션 평가 180720 EP.6
+
+https://youtu.be/1z7axf44mWI
+
+https://srv80.clipconverter.cc/download/0qzTnWtnyXuwZ2ttnJWWaHFg5KWmqXFo4pSYa2thmWdtZHC0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F6%ED%9A%8C%5D%20%E2%80%B2%ED%94%84%EB%93%8048%20%EC%B6%A4%EA%BE%BC%20%EC%B4%9D%EC%A7%91%ED%95%A9%E2%80%B2%201%EB%93%B1%20%ED%95%A0%EA%B2%8C%21%20%EB%AF%B8%EC%95%88%ED%95%B4U~%E3%85%A3Demi%20Lovato%20%E2%99%ACSorry%20Not%20Sorry%20%40%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
+
+# 【Produce48】张元英 In to youㅣAriana Grande ♬Side To Side @位置评价 180720 EP.6
+
+PRODUCE48 [6회] ′심쿵 눈빛′ In to youㅣAriana Grande ♬Side To Side @포지션 평가 180720 EP.6
+
+https://youtu.be/3NgwSWrVde8
+
+https://srv33.clipconverter.cc/download/ssi5roZ2oKCwZ2ttnJWUcG1g5KWmqWxr4pSYa2thmWdka260qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B6%ED%9A%8C%5D%20%E2%80%B2%EC%8B%AC%EC%BF%B5%20%EB%88%88%EB%B9%9B%E2%80%B2%20In%20to%20you%E3%85%A3Ariana%20Grande%20%E2%99%ACSide%20To%20Side%20%40%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
 
 # All About I.O.I
 https://twitter.com/Mnet_Chat/status/1020199852049743872
