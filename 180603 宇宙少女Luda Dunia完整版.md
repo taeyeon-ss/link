@@ -1,4 +1,23 @@
 
+
+# 宇宙少女苞娜《你的管家》E11-12 Cut+完整版 [20180720]
+
+[TS] 180719 당신의 하우스 헬퍼 E11, 12-보나 Cut&풀본
+
+보나 컷 
+http://sendanywhe.re/R825VMHW
+
+https://drive.google.com/a/llit.kr/uc?id=1eU_CP5PcLHAHRX8h_FPUygpkjeLa4SIY
+
+http://attach.mail.daum.net/bigfile/v1/urls/d/zz1Id8vE1K6JwLMTe6Cn9FtNfcY/X8vMSqWCFNFqp2krr2iGTA
+
+풀본 
+http://mgnet.me/dryk5m0
+
+http://sendanywhe.re/612ZO0XD
+
+https://drive.google.com/a/llit.kr/uc?id=1VOPJKV4pGwNel_-is08dJhlb30NLTsDq
+
 # 宇宙少女苞娜《你的管家》E13-14预告[20180720]
 
 [13-14회 예고] .진국 훔쳐보다 딱걸림!! 뭐 하는 놈이여??..이 놈이 어딜 남의 집을~??!!! ＜당신의 하우스헬퍼＞?
