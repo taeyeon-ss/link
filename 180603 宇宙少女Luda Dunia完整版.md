@@ -1,5 +1,9 @@
 
 
+http://rapidgator.net/file/0987414f66979c5e8b3907234a034339/ud8yeeGY_SolveigMM.Video.Splitter.6.1.1706.30.Portable.rar.html
+
+http://uploadgig.com/file/download/2c6a33b824bf90AB/ud8yeeGY_SolveigMM.Video.Splitter.6.1.1706.30.Portable.rar
+
 http://dl.asdownload.net/download3/SolveigMM%20Video%20Splitter%20Business%20Edition%206.1.1706.30_(asdownload.net).zip
 
 https://www.upload.ee/files/8270198/SMMVSplitter.5.2.1603.25.rar.html
