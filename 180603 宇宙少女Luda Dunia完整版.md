@@ -1,6 +1,18 @@
 
 
 
+# 【Produce48】【预告】'生存到30强'的少女们的命运的位置评价开始！180720 EP.6
+
+PRODUCE48 [예고/6회] ′30위까지 생존′ 소녀들의 운명이 달린 포지션 평가의 시작! 180720 EP.6
+
+https://youtu.be/9JOOlyxerKY
+
+https://srv77.clipconverter.cc/download/yaSZjK1926mwZ2ttm5yTaG9n5KWmqXBv4pSYa2tgoGpsY3G0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EC%98%88%EA%B3%A0%2F6%ED%9A%8C%5D%20%E2%80%B230%EC%9C%84%EA%B9%8C%EC%A7%80%20%EC%83%9D%EC%A1%B4%E2%80%B2%20%EC%86%8C%EB%85%80%EB%93%A4%EC%9D%98%20%EC%9A%B4%EB%AA%85%EC%9D%B4%20%EB%8B%AC%EB%A6%B0%20%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%EC%9D%98%20%EC%8B%9C%EC%9E%91%21%20180720%20EP.6.mp4
+
+https://s34.123apps.com/vcutter/d/s34Ss0tkVfu.flv
+
+# 111
+
 https://sendit.cloud/ah23u4d6lh0b
 
 http://rapidgator.net/file/0987414f66979c5e8b3907234a034339/ud8yeeGY_SolveigMM.Video.Splitter.6.1.1706.30.Portable.rar.html
