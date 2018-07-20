@@ -1,5 +1,8 @@
 
 
+# 【安宥真】 180720 [VIDEO] Acuvue Korea - 아큐브 코리아 FB Update with Ahn Yujin! 💗 유진이의 상큼한 안무짤 공개💘
+https://www.facebook.com/AcuvueKorea/videos/1787946951286368/
+
 # 【Produce48】第六期 位置评价 180720 EP.06 
 
 # 【Produce48】【合集】位置评价舞台 180720 EP.06
