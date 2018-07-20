@@ -1,5 +1,13 @@
 
 
+# 【Produce48】张元英 In to youㅣAriana Grande ♬Side To Side @位置评价 180720 EP.6
+
+https://srv85.clipconverter.cc/download/y8uzba52qWWwZ2ttnJWZaXFl5KWmqXFt4pSYa2thmWpkY3G0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B6%ED%9A%8C%5D%20%E2%80%B2%EC%8B%AC%EC%BF%B5%20%EB%88%88%EB%B9%9B%E2%80%B2%20In%20to%20you%E3%85%A3Ariana%20Grande%20%E2%99%ACSide%20To%20Side%20%40%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
+
+
+#
+https://downrose.com/bbs/board.php?bo_table=KOR_TV&wr_id=55325
+
 # 【Produce48】安宥真 崔艺娜 Demi Lovato ♬Sorry Not Sorry @位置评价 180720 EP.6
 
 PRODUCE48 [단독/6회] ′프듀48 춤꾼 총집합′ 1등 할게! 미안해U~ㅣDemi Lovato ♬Sorry Not Sorry @포지션 평가 180720 EP.6
