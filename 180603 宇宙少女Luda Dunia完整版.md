@@ -8,6 +8,8 @@ https://upload4earn.org/1mj1epkj8f4x
 
 PRODUCE48 [단독/선공개] 포지션 평가ㅣ♬널 너무 모르고 & ♬Sorry Not Sorry 180720 EP.6
 
+https://youtu.be/7wuYvN7Fk3k
+
 https://srv39.clipconverter.cc/download/2ZmXnqmk4GSwZ2ttm5qYbm5g5KWmqWxx4pSYa2tgn2dsY2u0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%84%A0%EA%B3%B5%EA%B0%9C%5D%20%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%E3%85%A3%E2%99%AC%EB%84%90%20%EB%84%88%EB%AC%B4%20%EB%AA%A8%EB%A5%B4%EA%B3%A0%20u0026%20%E2%99%ACSorry%20Not%20Sorry%20180720%20EP.6.mp4
 
 https://s47.123apps.com/vcutter/d/s47eS1jaXuj.flv
