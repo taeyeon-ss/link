@@ -7,6 +7,13 @@ https://tv.naver.com/v/3642470
 
 http://channels.vlive.tv/D4F547/video
 
+https://www.vlive.tv/video/80923?channelCode=D4F547
+
+# 宇宙少女苞娜《你的管家》E11-12预告[20180720]
+https://www.vlive.tv/video/80766?channelCode=D4F547
+
+https://www.vlive.tv/video/81129?channelCode=D4F547 合集
+
 # 【Produce48】【预告】'生存到30强'的少女们的命运的位置评价开始！180720 EP.6
 
 PRODUCE48 [예고/6회] ′30위까지 생존′ 소녀들의 운명이 달린 포지션 평가의 시작! 180720 EP.6
