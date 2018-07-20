@@ -2,6 +2,7 @@
 
 # 【Produce48】第六期 位置评价 180720 EP.06 
 
+# 【Produce48】【合集】位置评价舞台 180720 EP.06 
 
 # 【Produce48】张元英 In to youㅣAriana Grande ♬Side To Side @位置评价 180720 EP.6
 
