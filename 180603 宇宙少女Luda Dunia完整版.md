@@ -6,6 +6,8 @@
 
 https://www.youtube.com/user/PlayMnet/videos
 
+# 【Produce48】金诗炫 Energetic @位置评价 180720 EP.6
+
 # 【Produce48】张元英 In to youㅣAriana Grande ♬Side To Side @位置评价 180720 EP.6
 
 https://srv85.clipconverter.cc/download/y8uzba52qWWwZ2ttnJWZaXFl5KWmqXFt4pSYa2thmWpkY3G0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B6%ED%9A%8C%5D%20%E2%80%B2%EC%8B%AC%EC%BF%B5%20%EB%88%88%EB%B9%9B%E2%80%B2%20In%20to%20you%E3%85%A3Ariana%20Grande%20%E2%99%ACSide%20To%20Side%20%40%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
