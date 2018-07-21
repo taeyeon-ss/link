@@ -3,6 +3,12 @@
 
 https://www.bilibili.com/video/av27349189
 
+https://www.bilibili.com/video/av27349189
+rapid  https://www.rapidvideo.com/v/FTH77UCE5F
+  OL   https://openload.co/f/DV-X-K8NhjY
+  DM   http://www.dailymotion.com/video/k6begaQLles6X8rsQHg
+       http://www.dailymotion.com/video/k776nochgtHKPWrsQHf
+
 # 宇宙少女苞娜《你的管家》5-6回的幕后花絮 [20180721]
 
 [당신의 하우스헬퍼]#.다섯번째 메이킹/5-6회_명품연기犬 "또복이"의 본명은???
