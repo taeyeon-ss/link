@@ -1,4 +1,19 @@
 
+# 【Produce48】 E06 180720 全场中字
+
+https://www.bilibili.com/video/av27349189
+
+# 宇宙少女苞娜《你的管家》5-6回的幕后花絮 [20180721]
+
+[당신의 하우스헬퍼]#.다섯번째 메이킹/5-6회_명품연기犬 "또복이"의 본명은???
+
+名品演员犬"嘟嘟囔囔"的本名是???
+
+https://www.vlive.tv/video/81116
+
+http://globalv.p.naverrmc.edgesuite.net/global/read/global_v_2018_07_20_2/c0bb34d7-8bf6-11e8-85af-000000008ca5.mp4?__gda__=1532149193_2ed961e17efb0888d6fdf14602311433
+
+https://s37.123apps.com/vcutter/d/s37Z9M9NK0r.flv
 
 # 【安宥真】 180720 [VIDEO] Acuvue Korea - 아큐브 코리아 FB Update with Ahn Yujin! 💗 유진이의 상큼한 안무짤 공개💘
 https://www.facebook.com/AcuvueKorea/videos/1787946951286368/
