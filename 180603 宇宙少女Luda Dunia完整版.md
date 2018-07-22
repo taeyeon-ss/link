@@ -1,4 +1,34 @@
 
+
+
+# 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.07 完整版[20180715]
+
+두니아 처음 만난 세계.E08.180722.720p-NEXT
+
+magnet:?xt=urn:btih:5EC52F93CA046FAAA03EC4B580C608CE2D3F6902
+
+https://torrent.tax/b/torrent_kortv_ent-53212?sfl=wr_subject%7C%7Cwr_content&stx=20p-N&sst=wr_datetime&sod=desc&sop=and
+
+https://torrent.tax/p/s/google.php?q=%EB%91%90%EB%8B%88%EC%95%84+%EC%B2%98%EC%9D%8C+%EB%A7%8C%EB%82%9C+%EC%84%B8%EA%B3%84+E08
+
+# 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.07 Cut[合集][20180715]
+
+[TS] 180722 두니아 8회 풀본 + 루다컷
+
+http://gall.dcinside.com/board/view/?id=cosmicgirl&no=651855&page=2
+
+https://sendanywhe.re/1I666LPA
+
+https://sendanywhe.re/087BTSWO
+
+https://drive.google.com/file/d/1lCPljvOG6vCVvBvXAFM66ewsPhtyXhhy/view?usp=sharing
+
+https://drive.google.com/file/d/1EhultZMhR0fPiASUMN3dVOc8VIr1_N3Y/view?usp=sharing
+
+https://www.youtube.com/user/MBCentertainment/videos
+
+https://www.youtube.com/watch?v=3nSvg1LOFBw&list=PL7d9SABxcP1K56llh-7in6yyb2rRaHXJ1
+
 # dunia EP.07 prev
 https://twitter.com/MBCdunia/status/1020807743957917696
 
