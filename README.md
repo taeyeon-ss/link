@@ -7,6 +7,9 @@ http://wepaste.com/qqqq 111111
 # [Working!!]MediaHuma_YouTube_Downloader_v3.9.8.25_(0806).zip
 https://drive.google.com/file/d/19IO_AacKCxJH2CVuxxXdd2cp6-anoSfX/view?usp=sharing
 
+# EasiestSoft.Movie.Editor.5.1.Portable Split large .ts file
+https://drive.google.com/file/d/1kOt8oe3v1DDJaDNcQfG14swUP-P6Zdfh/view?usp=sharing
+
 # YouTube Video Downloader
 http://www.freemake.com/free_video_downloader/
 
