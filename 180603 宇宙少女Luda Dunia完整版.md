@@ -1,7 +1,14 @@
 
+# Sorry Not Sorry Cover - 프로듀스 48/PRODUCE 48 Lyrics (Color Coded) 
+
+https://youtu.be/rItOf1HQgvA  
+
+#AHNYUJIN #안유진 #최예나 #고유진 #권은비 #이채연
+
+https://twitter.com/radiant_YUJIN/status/1020873550360555520
 
 
-# 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.07 完整版[20180715]
+# 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.08 完整版[20180722]
 
 두니아 처음 만난 세계.E08.180722.720p-NEXT
 
@@ -11,7 +18,7 @@ https://torrent.tax/b/torrent_kortv_ent-53212?sfl=wr_subject%7C%7Cwr_content&stx
 
 https://torrent.tax/p/s/google.php?q=%EB%91%90%EB%8B%88%EC%95%84+%EC%B2%98%EC%9D%8C+%EB%A7%8C%EB%82%9C+%EC%84%B8%EA%B3%84+E08
 
-# 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.07 Cut[合集][20180715]
+# 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.08 Cut[合集][20180722]
 
 [TS] 180722 두니아 8회 풀본 + 루다컷
 
