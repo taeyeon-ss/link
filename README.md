@@ -25,6 +25,8 @@ https://convert-video-online.com/
 # 8in1
 https://drive.google.com/file/d/1f-cHd4slTLPy7gYWjztV56c9qkg6Q9Su/view?usp=sharing
 
+https://www.dropbox.com/s/qqbnfwchcunksx4/8in1.zip?dl=0
+
 # YT 1080P60FPS download
 https://www.clipconverter.cc/
 
