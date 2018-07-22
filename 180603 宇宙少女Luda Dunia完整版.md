@@ -1,4 +1,11 @@
 
+
+
+# 【安宥静】Cuts 合集 20180722
+https://www.youtube.com/channel/UCnsuOXVjcj82cVSre9c-P6Q/videos
+
+https://www.youtube.com/watch?v=u5w4RyocfVQ&list=PL7d9SABxcP1LWnVRGT9qOmqWj0YReMLzq
+
 # Sorry Not Sorry Cover - 프로듀스 48/PRODUCE 48 Lyrics (Color Coded) 
 
 https://youtu.be/rItOf1HQgvA  
