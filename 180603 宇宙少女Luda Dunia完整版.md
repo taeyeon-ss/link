@@ -1,4 +1,12 @@
 
+# dunia EP.07 prev
+https://twitter.com/MBCdunia/status/1020807743957917696
+
+https://twitter.com/MBCdunia/status/1020807234991796225
+
+#
+https://twitter.com/crowns_beagles/status/1020637775337480192
+
 # 【Produce48】 E06 180720 全场中字
 
 https://sendanywhe.re/R21URHZE
