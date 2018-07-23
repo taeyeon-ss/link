@@ -1,14 +1,29 @@
 
+
+
+
+宇宙少女Luda自拍短视频[20180723]
+https://twitter.com/raindrop0306/status/1021311431113756673
+
+宇宙少女Exy夏天舞蹈练习[20180723]
+https://twitter.com/WJSN_Cosmic/status/1021301077310705665
+
+宇宙少女Exy雪娥恩熙SNS短视频[20180723]
+https://www.instagram.com/exy_s2/
+
+宇宙少女夏天舞蹈练习[20180723]
+https://twitter.com/wjsn_uzzu_/status/1021286707096719360
+
+[#UZZU]
+#우주소녀 #은서 언니가
+#여름 언니의 연습 영상을
+#우쭈 에게 제보해줬쭈????❤️
+
 【Produce48】【48特别篇】李昇基代表教我的练习的诀窍！（feat .名品声）
 
 PRODUCE48 [48스페셜] 이승기 대표님이 알려주는 연습 꿀팀! (feat. 명품 보이스) 180720 EP.6
 
 https://youtu.be/AnwEu3KXtFk
-
-https://srv96.clipconverter.cc/download/mpjYhHph3GqwZ2ttnpaUampj5KWmqXJu4pSYa2tjmmlqaWu0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B48%EC%8A%A4%ED%8E%98%EC%85%9C%5D%20%EC%9D%B4%EC%8A%B9%EA%B8%B0%20%EB%8C%80%ED%91%9C%EB%8B%98%EC%9D%B4%20%EC%95%8C%EB%A0%A4%EC%A3%BC%EB%8A%94%20%EC%97%B0%EC%8A%B5%20%EA%BF%80%ED%8C%80%21%20%28feat.%20%EB%AA%85%ED%92%88%20%EB%B3%B4%EC%9D%B4%EC%8A%A4%29%20180720%20EP.6.mp4
-
-https://s39.123apps.com/vcutter/d/s395Fy7CHNA.flv
-
 
 # 【安宥静】Cuts 合集 20180722
 https://www.youtube.com/channel/UCnsuOXVjcj82cVSre9c-P6Q/videos
