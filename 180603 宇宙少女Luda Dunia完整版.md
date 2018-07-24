@@ -8,13 +8,15 @@ https://www.youtube.com/watch?v=7oFG6buitKc&t=1s
 
 https://srv74.clipconverter.cc/download/q6e5jHx%2FrZawZ2ttn5WWam9m5KWmqXBs4pSYa2tkmWZlbHG0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%A7%81%EC%BA%A0%5D%20%EC%9D%BC%EB%8C%80%EC%9D%BC%EC%95%84%EC%9D%B4%EC%BB%A8%ED%83%9D%E3%85%A3%EC%99%95%EC%9D%B4%EB%9F%B0%20-%20Ariana%20Grande%20%E2%99%ACSide%20To%20Side%20%40%EB%8C%84%EC%8A%A4_%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
 
-
+https://s42.123apps.com/vcutter/d/s425djxUKXc.flv
 
 【Produce48】【直拍】张元英 Ariana Grande ♬Side To Side @DANCE位置评价 180720 EP.6
 
 PRODUCE48 [단독/직캠] 일대일아이컨택ㅣ장원영 - Ariana Grande ♬Side To Side @댄스_포지션 평가 180720 EP.6
 
 https://www.youtube.com/watch?v=um8MmUuDH-A
+
+https://srv79.clipconverter.cc/download/0Zeon42a0WOwZ2ttn5WXa2po5KWmqXBx4pSYa2tkmWZoZ260qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%A7%81%EC%BA%A0%5D%20%EC%9D%BC%EB%8C%80%EC%9D%BC%EC%95%84%EC%9D%B4%EC%BB%A8%ED%83%9D%E3%85%A3%EC%9E%A5%EC%9B%90%EC%98%81%20-%20Ariana%20Grande%20%E2%99%ACSide%20To%20Side%20%40%EB%8C%84%EC%8A%A4_%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
 
 
 
