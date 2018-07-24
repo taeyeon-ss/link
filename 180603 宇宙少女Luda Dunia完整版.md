@@ -1,4 +1,14 @@
 
+安宥真 张元英 赵佳贤 王怡人 崔艺娜 金诗炫
+
+【Produce48】【直拍】XXX - 防弹少年团 ♬The Truth Untold @主唱&RAP位置评价 180720 EP.6
+
+【Produce48】【直拍】XXX - 防弹少年团 ♬The Truth Untold @主唱&RAP位置评价 180720 EP.6
+
+PRODUCE48 [단독/직캠] 일대일아이컨택ㅣ타케우치 미유 - 방탄소년단 ♬전하지 못한 진심 @보컬&랩_포지션 평가 180720 EP.6
+
+
+https://www.youtube.com/watch?v=xr3r_j1JW7Q&list=PL7d9SABxcP1LAkqbFvTFNb-Chwrb91pQC
 
 # 180722 MBC Dunia 初次遇見的世界 E08 中字
 
