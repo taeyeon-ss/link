@@ -40,6 +40,8 @@ https://youtu.be/MpU7mklh1t0
 
 https://srv73.clipconverter.cc/download/qM7akJpxn6CwZ2ttn5WXam9n5KWmqXBr4pSYa2tkmWZsanG0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%A7%81%EC%BA%A0%5D%20%EC%9D%BC%EB%8C%80%EC%9D%BC%EC%95%84%EC%9D%B4%EC%BB%A8%ED%83%9D%E3%85%A3%EC%B5%9C%EC%98%88%EB%82%98%20-%20Demi%20Lovato%20%E2%99%ACSorry%20Not%20Sorry%20%40%EB%8C%84%EC%8A%A4_%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
 
+https://s52.123apps.com/vcutter/d/s52KlXEiIRQ.flv
+
 
 【Produce48】【直拍】 赵佳贤 BLACKPINK ♬DDU-DU DDU-DU @VOCAL&RAP位置评价 180720 EP.6
 
