@@ -18,6 +18,8 @@ https://youtu.be/um8MmUuDH-A
 
 https://srv79.clipconverter.cc/download/0Zeon42a0WOwZ2ttn5WXa2po5KWmqXBx4pSYa2tkmWZoZ260qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%A7%81%EC%BA%A0%5D%20%EC%9D%BC%EB%8C%80%EC%9D%BC%EC%95%84%EC%9D%B4%EC%BB%A8%ED%83%9D%E3%85%A3%EC%9E%A5%EC%9B%90%EC%98%81%20-%20Ariana%20Grande%20%E2%99%ACSide%20To%20Side%20%40%EB%8C%84%EC%8A%A4_%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
 
+https://s44.123apps.com/vcutter/d/s444GsRfHk0.flv
+
 
 
 【Produce48】【直拍】安宥真 Demi Lovato ♬Sorry Not Sorry @DANCE位置评价 180720 EP.6
