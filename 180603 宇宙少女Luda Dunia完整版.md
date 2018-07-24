@@ -45,7 +45,22 @@ https://s52.123apps.com/vcutter/d/s52KlXEiIRQ.flv
 
 【Produce48】【直拍】 赵佳贤 BLACKPINK ♬DDU-DU DDU-DU @VOCAL&RAP位置评价 180720 EP.6
 
+PRODUCE48 [단독/직캠] 일대일아이컨택ㅣ조가현 - 블랙핑크 ♬뚜두뚜두 @보컬&랩_포지션 평가 180720 EP.6
+
+https://youtu.be/_qqqnWJqRmY
+
+https://srv96.clipconverter.cc/download/l5SQoqp9t4awZ2ttn5WbcW5h5KWmqXJu4pSYa2tkmWdtaW60qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%A7%81%EC%BA%A0%5D%20%EC%9D%BC%EB%8C%80%EC%9D%BC%EC%95%84%EC%9D%B4%EC%BB%A8%ED%83%9D%E3%85%A3%EC%A1%B0%EA%B0%80%ED%98%84%20-%20%EB%B8%94%EB%9E%99%ED%95%91%ED%81%AC%20%E2%99%AC%EB%9A%9C%EB%91%90%EB%9A%9C%EB%91%90%20%40%EB%B3%B4%EC%BB%ACu0026%EB%9E%A9_%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
+
+
+
 【Produce48】【直拍】 金诗炫 Wanna One ♬Energetic @VOCAL&RAP位置评价 180720 EP.6
+
+PRODUCE48 [단독/직캠] 일대일아이컨택ㅣ김시현 - 워너원 ♬에너제틱 @보컬&랩_포지션 평가 180720 EP.6
+
+https://youtu.be/VtUaPdX9iLA
+
+https://srv59.clipconverter.cc/download/ltSbjnKlsoawZ2ttn5WbcXFo5KWmqW5x4pSYa2tkmWdsZGu0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%A7%81%EC%BA%A0%5D%20%EC%9D%BC%EB%8C%80%EC%9D%BC%EC%95%84%EC%9D%B4%EC%BB%A8%ED%83%9D%E3%85%A3%EA%B9%80%EC%8B%9C%ED%98%84%20-%20%EC%9B%8C%EB%84%88%EC%9B%90%20%E2%99%AC%EC%97%90%EB%84%88%EC%A0%9C%ED%8B%B1%20%40%EB%B3%B4%EC%BB%ACu0026%EB%9E%A9_%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
+
 
 【Produce48】【直拍合集】 Position评价 DANCE VOCAL&RAP 180720 EP.6
 
