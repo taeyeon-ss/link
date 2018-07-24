@@ -24,7 +24,22 @@ https://s44.123apps.com/vcutter/d/s444GsRfHk0.flv
 
 【Produce48】【直拍】安宥真 Demi Lovato ♬Sorry Not Sorry @DANCE位置评价 180720 EP.6
 
+PRODUCE48 [단독/직캠] 일대일아이컨택ㅣ안유진 - Demi Lovato ♬Sorry Not Sorry @댄스_포지션 평가 180720 EP.6
+
+https://youtu.be/OZNtF49ze_w
+
+https://srv91.clipconverter.cc/download/2tGboaqTsH6wZ2ttn5WWb2xl5KWmqXJp4pSYa2tkmWZsaWy0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%A7%81%EC%BA%A0%5D%20%EC%9D%BC%EB%8C%80%EC%9D%BC%EC%95%84%EC%9D%B4%EC%BB%A8%ED%83%9D%E3%85%A3%EC%95%88%EC%9C%A0%EC%A7%84%20-%20Demi%20Lovato%20%E2%99%ACSorry%20Not%20Sorry%20%40%EB%8C%84%EC%8A%A4_%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
+
+https://s40.123apps.com/vcutter/d/s40oG8tlzfp.flv
+
 【Produce48】【直拍】崔艺娜 Demi Lovato ♬Sorry Not Sorry @DANCE位置评价 180720 EP.6
+
+PRODUCE48 [단독/직캠] 일대일아이컨택ㅣ최예나 - Demi Lovato ♬Sorry Not Sorry @댄스_포지션 평가 180720 EP.6
+
+https://youtu.be/MpU7mklh1t0
+
+https://srv73.clipconverter.cc/download/qM7akJpxn6CwZ2ttn5WXam9n5KWmqXBr4pSYa2tkmWZsanG0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%A7%81%EC%BA%A0%5D%20%EC%9D%BC%EB%8C%80%EC%9D%BC%EC%95%84%EC%9D%B4%EC%BB%A8%ED%83%9D%E3%85%A3%EC%B5%9C%EC%98%88%EB%82%98%20-%20Demi%20Lovato%20%E2%99%ACSorry%20Not%20Sorry%20%40%EB%8C%84%EC%8A%A4_%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
+
 
 【Produce48】【直拍】 赵佳贤 BLACKPINK ♬DDU-DU DDU-DU @VOCAL&RAP位置评价 180720 EP.6
 
