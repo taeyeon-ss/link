@@ -1,4 +1,16 @@
 
+
+# 宇宙少女恩熙多荣《Cover Brothers》下周预告[20180724]
+
+[커버브라더스 다음주 예고편]-은서 & 다영 출연
+
+https://twitter.com/LEOPISCES0225/status/1021747885929418753
+
+
+
+
+# 
+
 https://www.youtube.com/watch?v=AnwEu3KXtFk&t=5s
 
 【Produce48】【直拍】王怡人 Ariana Grande ♬Side To Side @DANCE位置评价 180720 EP.6
