@@ -1,5 +1,12 @@
 
 
+
+# 宇宙少女 CX 20180725
+
+이어폰 필수! 성소가 소개하는 소울워커의 7가지 행복 ASMR
+
+https://youtu.be/fwMvhmjP9xE
+
 # 宇宙少女苞娜《你的管家》OST[合集][20180724]
 
 [MV] Sanchez (산체스) – The Sea Of You (너라는 바다) | Your House Helper OST Part 2 / 당신의 하우스헬퍼 OST Part 2
