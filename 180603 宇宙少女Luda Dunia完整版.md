@@ -15,6 +15,14 @@ https://drive.google.com/a/llit.kr/uc?id=1ns2LA8E0VDHxDJllPMvH2lvEyn_ZoVl6
 
 http://sendanywhe.re/460WOEXY
 
+https://www.youtube.com/watch?v=RsK8NR_n5nY&list=PL7d9SABxcP1IJqzBBT1totels-6jw7KpQ
+
+# 宇宙少女苞娜《你的管家》EP11-12[20180718]
+https://www.youtube.com/watch?v=fRCCTo2rht4&list=PL7d9SABxcP1L1UB4gNjaEAXMB8fx9a2Bz
+
+# 宇宙少女苞娜《你的管家》EP09-10[20180718]
+https://www.youtube.com/watch?v=hdimKEPVfog&list=PL7d9SABxcP1LnTBDNYs0AAAtj23-x5NCj
+
 
 # 宇宙少女 CX 20180725
 
