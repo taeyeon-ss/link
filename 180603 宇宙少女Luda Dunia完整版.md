@@ -1,4 +1,15 @@
 
+
+# 【Produce48】【预告】 位置评价综合1位，10万票福利的主人公被公开！180728 EP.7
+
+PRODUCE48 [예고/7회] 포지션 평가 종합 1위, 베네핏 10만 표의 주인공이 공개된다! 180728 EP.7
+
+https://youtu.be/2dZAbd-JI_U
+
+https://srv85.clipconverter.cc/download/yZe5raSezYawZ2tul5WbaW9h5KWmqXFt4pSYa2tloWllZ3C0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EC%98%88%EA%B3%A0%2F7%ED%9A%8C%5D%20%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20%EC%A2%85%ED%95%A9%201%EC%9C%84%2C%20%EB%B2%A0%EB%84%A4%ED%95%8F%2010%EB%A7%8C%20%ED%91%9C%EC%9D%98%20%EC%A3%BC%EC%9D%B8%EA%B3%B5%EC%9D%B4%20%EA%B3%B5%EA%B0%9C%EB%90%9C%EB%8B%A4%21%20180728%20EP.7.mp4
+
+https://s48.123apps.com/vcutter/d/s48sHoMAcHC.flv
+
 # 宇宙少女苞娜《你的管家》EP13-14[20180725]
 [TS] 180725 당신의 하우스 헬퍼 E13, 14-보나 Cut&풀본
 
