@@ -28,6 +28,8 @@ https://youtu.be/ivyJq-0VYD8
 封面
 https://www.youtube.com/watch?v=i6GfXMtuFJk
 
+https://www.youtube.com/channel/UCxOZuUWuWhnsJqnlTcLlSYg/videos
+
 
 # 【Produce48】【预告】 位置评价综合1位，10万票福利的主人公被公开！180728 EP.7
 
