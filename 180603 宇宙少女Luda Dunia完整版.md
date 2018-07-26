@@ -1,4 +1,19 @@
 
+# 宇宙少女苞娜《你的管家》EP13-14[20180725]
+[TS] 180725 당신의 하우스 헬퍼 E13, 14-보나 Cut&풀본
+
+보나 컷 
+https://drive.google.com/a/llit.kr/uc?id=1kDWpHuOf7ZHq6tNiFTmXquHqhn7GtDzb
+
+http://attach.mail.daum.net/bigfile/v1/urls/d/MMw-PHe3l4AqLoVJ74cMAXP8Kr0/7kGxj45-zJuPnPCy2IZpaw
+
+http://sendanywhe.re/C2578OPM
+
+풀본 http://mgnet.me/drRjbq7
+
+https://drive.google.com/a/llit.kr/uc?id=1ns2LA8E0VDHxDJllPMvH2lvEyn_ZoVl6
+
+http://sendanywhe.re/460WOEXY
 
 
 # 宇宙少女 CX 20180725
@@ -23,9 +38,6 @@ https://www.youtube.com/channel/UCkVStUJhQSdhzxG2OgN-ZCQ/videos
 
 https://twitter.com/LEOPISCES0225/status/1021747885929418753
 
-
-
-
 # 
 
 https://www.youtube.com/watch?v=AnwEu3KXtFk&t=5s
@@ -36,21 +48,11 @@ PRODUCE48 [단독/직캠] 일대일아이컨택ㅣ왕이런 - Ariana Grande ♬S
 
 https://youtu.be/7oFG6buitKc
 
-https://srv74.clipconverter.cc/download/q6e5jHx%2FrZawZ2ttn5WWam9m5KWmqXBs4pSYa2tkmWZlbHG0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%A7%81%EC%BA%A0%5D%20%EC%9D%BC%EB%8C%80%EC%9D%BC%EC%95%84%EC%9D%B4%EC%BB%A8%ED%83%9D%E3%85%A3%EC%99%95%EC%9D%B4%EB%9F%B0%20-%20Ariana%20Grande%20%E2%99%ACSide%20To%20Side%20%40%EB%8C%84%EC%8A%A4_%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
-
-https://s42.123apps.com/vcutter/d/s425djxUKXc.flv
-
 【Produce48】【直拍】张元英 Ariana Grande ♬Side To Side @DANCE位置评价 180720 EP.6
 
 PRODUCE48 [단독/직캠] 일대일아이컨택ㅣ장원영 - Ariana Grande ♬Side To Side @댄스_포지션 평가 180720 EP.6
 
 https://youtu.be/um8MmUuDH-A
-
-https://srv79.clipconverter.cc/download/0Zeon42a0WOwZ2ttn5WXa2po5KWmqXBx4pSYa2tkmWZoZ260qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%A7%81%EC%BA%A0%5D%20%EC%9D%BC%EB%8C%80%EC%9D%BC%EC%95%84%EC%9D%B4%EC%BB%A8%ED%83%9D%E3%85%A3%EC%9E%A5%EC%9B%90%EC%98%81%20-%20Ariana%20Grande%20%E2%99%ACSide%20To%20Side%20%40%EB%8C%84%EC%8A%A4_%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
-
-https://s44.123apps.com/vcutter/d/s444GsRfHk0.flv
-
-
 
 【Produce48】【直拍】安宥真 Demi Lovato ♬Sorry Not Sorry @DANCE位置评价 180720 EP.6
 
@@ -58,20 +60,11 @@ PRODUCE48 [단독/직캠] 일대일아이컨택ㅣ안유진 - Demi Lovato ♬Sor
 
 https://youtu.be/OZNtF49ze_w
 
-https://srv91.clipconverter.cc/download/2tGboaqTsH6wZ2ttn5WWb2xl5KWmqXJp4pSYa2tkmWZsaWy0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%A7%81%EC%BA%A0%5D%20%EC%9D%BC%EB%8C%80%EC%9D%BC%EC%95%84%EC%9D%B4%EC%BB%A8%ED%83%9D%E3%85%A3%EC%95%88%EC%9C%A0%EC%A7%84%20-%20Demi%20Lovato%20%E2%99%ACSorry%20Not%20Sorry%20%40%EB%8C%84%EC%8A%A4_%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
-
-https://s40.123apps.com/vcutter/d/s40oG8tlzfp.flv
-
 【Produce48】【直拍】崔艺娜 Demi Lovato ♬Sorry Not Sorry @DANCE位置评价 180720 EP.6
 
 PRODUCE48 [단독/직캠] 일대일아이컨택ㅣ최예나 - Demi Lovato ♬Sorry Not Sorry @댄스_포지션 평가 180720 EP.6
 
 https://youtu.be/MpU7mklh1t0
-
-https://srv73.clipconverter.cc/download/qM7akJpxn6CwZ2ttn5WXam9n5KWmqXBr4pSYa2tkmWZsanG0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%A7%81%EC%BA%A0%5D%20%EC%9D%BC%EB%8C%80%EC%9D%BC%EC%95%84%EC%9D%B4%EC%BB%A8%ED%83%9D%E3%85%A3%EC%B5%9C%EC%98%88%EB%82%98%20-%20Demi%20Lovato%20%E2%99%ACSorry%20Not%20Sorry%20%40%EB%8C%84%EC%8A%A4_%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
-
-https://s52.123apps.com/vcutter/d/s52KlXEiIRQ.flv
-
 
 【Produce48】【直拍】 赵佳贤 BLACKPINK ♬DDU-DU DDU-DU @VOCAL&RAP位置评价 180720 EP.6
 
@@ -79,21 +72,11 @@ PRODUCE48 [단독/직캠] 일대일아이컨택ㅣ조가현 - 블랙핑크 ♬�
 
 https://youtu.be/_qqqnWJqRmY
 
-https://srv96.clipconverter.cc/download/l5SQoqp9t4awZ2ttn5WbcW5h5KWmqXJu4pSYa2tkmWdtaW60qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%A7%81%EC%BA%A0%5D%20%EC%9D%BC%EB%8C%80%EC%9D%BC%EC%95%84%EC%9D%B4%EC%BB%A8%ED%83%9D%E3%85%A3%EC%A1%B0%EA%B0%80%ED%98%84%20-%20%EB%B8%94%EB%9E%99%ED%95%91%ED%81%AC%20%E2%99%AC%EB%9A%9C%EB%91%90%EB%9A%9C%EB%91%90%20%40%EB%B3%B4%EC%BB%ACu0026%EB%9E%A9_%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
-
-https://s59.123apps.com/vcutter/d/s597v0ZAHHI.flv
-
-
 【Produce48】【直拍】 金诗炫 Wanna One ♬Energetic @VOCAL&RAP位置评价 180720 EP.6
 
 PRODUCE48 [단독/직캠] 일대일아이컨택ㅣ김시현 - 워너원 ♬에너제틱 @보컬&랩_포지션 평가 180720 EP.6
 
 https://youtu.be/VtUaPdX9iLA
-
-https://srv59.clipconverter.cc/download/ltSbjnKlsoawZ2ttn5WbcXFo5KWmqW5x4pSYa2tkmWdsZGu0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%A7%81%EC%BA%A0%5D%20%EC%9D%BC%EB%8C%80%EC%9D%BC%EC%95%84%EC%9D%B4%EC%BB%A8%ED%83%9D%E3%85%A3%EA%B9%80%EC%8B%9C%ED%98%84%20-%20%EC%9B%8C%EB%84%88%EC%9B%90%20%E2%99%AC%EC%97%90%EB%84%88%EC%A0%9C%ED%8B%B1%20%40%EB%B3%B4%EC%BB%ACu0026%EB%9E%A9_%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
-
-https://s41.123apps.com/vcutter/d/s41CxoI3axF.flv
-
 
 【Produce48】【直拍合集】 Position评价 DANCE VOCAL&RAP 180720 EP.6
 
@@ -235,9 +218,6 @@ https://youtu.be/PrXYi_agb_8
 
 # 【Produce48】张元英 In to youㅣAriana Grande ♬Side To Side @位置评价 180720 EP.6
 
-https://srv85.clipconverter.cc/download/y8uzba52qWWwZ2ttnJWZaXFl5KWmqXFt4pSYa2thmWpkY3G0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B6%ED%9A%8C%5D%20%E2%80%B2%EC%8B%AC%EC%BF%B5%20%EB%88%88%EB%B9%9B%E2%80%B2%20In%20to%20you%E3%85%A3Ariana%20Grande%20%E2%99%ACSide%20To%20Side%20%40%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
-
-
 #
 https://downrose.com/bbs/board.php?bo_table=KOR_TV&wr_id=55325
 
@@ -247,15 +227,11 @@ PRODUCE48 [단독/6회] ′프듀48 춤꾼 총집합′ 1등 할게! 미안해U~
 
 https://youtu.be/1z7axf44mWI
 
-https://srv80.clipconverter.cc/download/0qzTnWtnyXuwZ2ttnJWWaHFg5KWmqXFo4pSYa2thmWdtZHC0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F6%ED%9A%8C%5D%20%E2%80%B2%ED%94%84%EB%93%8048%20%EC%B6%A4%EA%BE%BC%20%EC%B4%9D%EC%A7%91%ED%95%A9%E2%80%B2%201%EB%93%B1%20%ED%95%A0%EA%B2%8C%21%20%EB%AF%B8%EC%95%88%ED%95%B4U~%E3%85%A3Demi%20Lovato%20%E2%99%ACSorry%20Not%20Sorry%20%40%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
-
 # 【Produce48】张元英 In to youㅣAriana Grande ♬Side To Side @位置评价 180720 EP.6
 
 PRODUCE48 [6회] ′심쿵 눈빛′ In to youㅣAriana Grande ♬Side To Side @포지션 평가 180720 EP.6
 
 https://youtu.be/3NgwSWrVde8
-
-https://srv33.clipconverter.cc/download/ssi5roZ2oKCwZ2ttnJWUcG1g5KWmqWxr4pSYa2thmWdka260qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B6%ED%9A%8C%5D%20%E2%80%B2%EC%8B%AC%EC%BF%B5%20%EB%88%88%EB%B9%9B%E2%80%B2%20In%20to%20you%E3%85%A3Ariana%20Grande%20%E2%99%ACSide%20To%20Side%20%40%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180720%20EP.6.mp4
 
 # All About I.O.I
 https://twitter.com/Mnet_Chat/status/1020199852049743872
@@ -306,10 +282,6 @@ PRODUCE48 [예고/6회] ′30위까지 생존′ 소녀들의 운명이 달린 �
 
 https://youtu.be/9JOOlyxerKY
 
-https://srv77.clipconverter.cc/download/yaSZjK1926mwZ2ttm5yTaG9n5KWmqXBv4pSYa2tgoGpsY3G0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EC%98%88%EA%B3%A0%2F6%ED%9A%8C%5D%20%E2%80%B230%EC%9C%84%EA%B9%8C%EC%A7%80%20%EC%83%9D%EC%A1%B4%E2%80%B2%20%EC%86%8C%EB%85%80%EB%93%A4%EC%9D%98%20%EC%9A%B4%EB%AA%85%EC%9D%B4%20%EB%8B%AC%EB%A6%B0%20%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%EC%9D%98%20%EC%8B%9C%EC%9E%91%21%20180720%20EP.6.mp4
-
-https://s34.123apps.com/vcutter/d/s34Ss0tkVfu.flv
-
 # 111
 
 https://sendit.cloud/ah23u4d6lh0b
@@ -334,11 +306,6 @@ PRODUCE48 [단독/선공개] 포지션 평가ㅣ♬널 너무 모르고 & ♬Sor
 
 https://youtu.be/7wuYvN7Fk3k
 
-https://srv39.clipconverter.cc/download/2ZmXnqmk4GSwZ2ttm5qYbm5g5KWmqWxx4pSYa2tgn2dsY2u0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%84%A0%EA%B3%B5%EA%B0%9C%5D%20%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%E3%85%A3%E2%99%AC%EB%84%90%20%EB%84%88%EB%AC%B4%20%EB%AA%A8%EB%A5%B4%EA%B3%A0%20u0026%20%E2%99%ACSorry%20Not%20Sorry%20180720%20EP.6.mp4
-
-https://s47.123apps.com/vcutter/d/s47eS1jaXuj.flv
-
-
 # [3D AUDIO/Slide Show] 우주소녀(WJSN) 성소 - 별이 된 소녀 (ft.다영)
 https://www.youtube.com/watch?v=dQhDoVfv_44
 
@@ -356,10 +323,6 @@ https://baltagy1.blogspot.com/2018/07/virtualbox-portable.html
 [ENG sub] 최애가 과외쌤이라면? 공부가 된다!? vs 안된다!? [MSG뉴스]
 
 https://youtu.be/bXXP40Pb61g
-
-https://srv77.clipconverter.cc/download/xdSpqKKRqX%2BwZ2ttm5SacW1i5KWmqXBv4pSYa2tgmmNpa2m0qc%2FMqHyf1qiZpa2d2A%3D%3D/%5BENG%20sub%5D%20%EC%B5%9C%EC%95%A0%EA%B0%80%20%EA%B3%BC%EC%99%B8%EC%8C%A4%EC%9D%B4%EB%9D%BC%EB%A9%B4%3F%20%EA%B3%B5%EB%B6%80%EA%B0%80%20%EB%90%9C%EB%8B%A4%21%3F%20vs%20%EC%95%88%EB%90%9C%EB%8B%A4%21%3F%20%5BMSG%EB%89%B4%EC%8A%A4%5D.mp4
-
-https://s51.123apps.com/vcutter/d/s513Cm7xrk0.flv
 
 # 宇宙少女多荣的料理教室Ep.06[20180719]
 
@@ -477,9 +440,6 @@ https://youtu.be/zGTS1hYR5Kw
 https://s39.123apps.com/vcutter/d/s39MtHdqyL8.flv
 
 
-https://srv40.clipconverter.cc/download/2MyohYV7sGqwZ2ttmpqUa2tl5KWmqW1o4pSYa2ppoWNrY2q0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F48TV%5D%20%EA%BD%81%EB%83%A5%EA%BD%81%EB%83%A5%E2%99%A1%20%EC%85%80%ED%94%84%EC%BA%A0%20%ED%95%98%EB%93%9C%ED%84%B8%EC%9D%B4%20l%20%EC%98%88%EB%82%98%E2%86%92%ED%86%A0%EB%AC%B4%E2%86%92%EC%9D%80%EB%B9%84%20180713%20EP.5.mp4
-
-
 #  宇宙少女苞娜《你的管家》EP9-10[20180718]
 
 [TS] 180718 당신의 하우스 헬퍼 E09, 10-보나 Cut&풀본
@@ -523,10 +483,6 @@ https://www.youtube.com/watch?v=9L-Hk79SYNo
 灵魂武器
 
 https://youtu.be/xbJhMatIzkw
-
-https://srv79.clipconverter.cc/download/s9qZn3qqvmmwZ2ttmZuYaXBn5KWmqXBx4pSYa2ppmWRka2q0qc%2FMqHyf1qiZpa2d2A%3D%3D/%EC%86%8C%EC%9A%B8%EC%9B%8C%EC%BB%A4%20%7C%20%EC%9D%B4%EB%A6%AC%EC%8A%A4x%EC%84%B1%EC%86%8C%20%EC%8A%A4%ED%8E%98%EC%85%9C%20O.S.T%20%E2%80%9C%EB%B3%84%EC%9D%B4%20%EB%90%9C%20%EC%86%8C%EB%85%80%E2%80%9D.mp4
-
-https://s41.123apps.com/vcutter/d/s415oA5pNEW.flv
 
 # 宇宙少女Luda《Dunia》宣传活动短视频[20180718]
 https://twitter.com/MBC_entertain/status/1019446746793926657
