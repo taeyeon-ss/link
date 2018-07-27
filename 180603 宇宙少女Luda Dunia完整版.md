@@ -41,6 +41,20 @@ https://srv85.clipconverter.cc/download/yZe5raSezYawZ2tul5WbaW9h5KWmqXFt4pSYa2tl
 
 https://s48.123apps.com/vcutter/d/s48sHoMAcHC.flv
 
+# 宇宙少女苞娜《你的管家》EP15-16[20180726]
+
+[TS] 180726 당신의 하우스 헬퍼 E15, 16-보나 Cut&풀본
+
+보나 컷 
+http://sendanywhe.re/41J5LTNO
+https://drive.google.com/a/llit.kr/uc?id=1y7UYjlHmGfZBrrEBgY4l5hP6XebRcTF-
+http://attach.mail.daum.net/bigfile/v1/urls/d/PkTWPIJjBhaB6F60NbueZqqJt2A/aQHTqp6Aa6-PnPCy2IZpaw
+
+풀본 http://mgnet.me/drT90Ea
+http://sendanywhe.re/CB3FTONI
+
+http://gall.dcinside.com/board/view/?id=cosmicgirl&no=653111&page=2
+
 # 宇宙少女苞娜《你的管家》EP13-14[20180725]
 [TS] 180725 당신의 하우스 헬퍼 E13, 14-보나 Cut&풀본
 
