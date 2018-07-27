@@ -1,7 +1,7 @@
 
 
 
-
+https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=26289579
 
 # 【Produce48】二阶段应援认证 180727
 
