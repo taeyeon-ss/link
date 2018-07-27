@@ -1,4 +1,9 @@
 
+# 宇宙少女（Babyface）LINE贴图动画版[20180724]
+
+우주소녀 WJSN - Babyface (Animation Music Video Version by HyperRabbit LINE Sticker)
+
+https://youtu.be/yhFrOP0kmWo
 
 
 【Produce48】第五期 位置评价、综合1位练习生公开！ 180727 EP.07
