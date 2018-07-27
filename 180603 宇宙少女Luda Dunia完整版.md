@@ -1,4 +1,34 @@
 
+
+
+
+
+# 【Produce48】二阶段应援认证 180727
+
+https://www.facebook.com/produce101/videos/688329958169664/  王珂（HOW） 1阶段
+
+https://www.facebook.com/produce101/videos/688320571503936/  윤해솔（MUSIC WORKS）
+
+https://www.facebook.com/produce101/videos/688320364837290/  本田 仁美（AKB48）
+
+https://www.facebook.com/produce101/videos/688319968170663/  张元英
+
+https://www.facebook.com/produce101/videos/688314838171176/  竹内 美宥（AKB48）
+
+https://www.facebook.com/produce101/videos/688314484837878/  李佳恩（PLEDIS）
+
+https://www.facebook.com/produce101/videos/688311641504829/  後藤 萌咲（AKB48）
+
+https://www.facebook.com/produce101/videos/688307094838617/  安宥真
+
+# 1阶段应援认证 180727
+
+https://www.facebook.com/produce101/videos/688307834838543/  박민지(MND17)
+
+https://www.facebook.com/produce101/videos/688305671505426/  손은채（Million Market）
+
+
+
 # 宇宙少女恩熙[文化展望 2030]'人生书茶坊'预告片[20180727]
 
 [문화비전 2030] '인생책다방' 예고편
