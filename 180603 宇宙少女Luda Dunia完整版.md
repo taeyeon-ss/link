@@ -21,11 +21,16 @@ https://www.facebook.com/produce101/videos/688311641504829/  後藤 萌咲（AKB
 
 https://www.facebook.com/produce101/videos/688307094838617/  安宥真
 
+https://www.facebook.com/produce101/videos/678654875803839/  宮脇 咲良（HKT48）
+
 # 1阶段应援认证 180727
 
 https://www.facebook.com/produce101/videos/688307834838543/  朴敏智 박민지(MND17)
 
 https://www.facebook.com/produce101/videos/688305671505426/  孙恩采 손은채（Million Market）
+
+
+
 
 
 
