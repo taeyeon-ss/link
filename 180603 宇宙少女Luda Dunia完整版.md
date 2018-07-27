@@ -1,5 +1,5 @@
 
-# 宇宙少女（Babyface）LINE贴图动画版[20180724]
+# 宇宙少女（WJSN）“Babyface”LINE贴图动画版[20180724]
 
 우주소녀 WJSN - Babyface (Animation Music Video Version by HyperRabbit LINE Sticker)
 
