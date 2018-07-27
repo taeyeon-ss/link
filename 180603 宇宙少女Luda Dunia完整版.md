@@ -1,6 +1,67 @@
 
 
 
+【Produce48】第五期 位置评价、综合1位练习生公开！ 180727 EP.07
+
+https://downrose.com/bbs/search.php?url=https%3A%2F%2Fdownrose.com%2Fbbs%2Fsearch.php&stx=Mnet+%ED%94%84%EB%A1%9C%EB%93%80%EC%8A%A448
+
+
+【Produce48】第五期 片段合集 180713 EP.05
+https://www.youtube.com/user/PlayMnet/videos
+
+
+#프로듀스48 l [NEXT WEEK] 컨셉 평가 무대를 위한 관문, 두 번째 순위 발표식!
+#PRODUCE48 l [NEXT WEEK]コンセプト評価舞台のための関門、２回目の順位発表式！
+
+为主题评价舞台的关门，第2次的名次发表仪式！
+
+是为了评价舞台的关口，第二次排名发表仪式！
+
+[NEXT WEEK] 下周预告 主题评价舞台、第2次的名次发表仪式！
+ 
+#프로듀스48 l [7회] '예측불허' 댄스 포지션 종합 1위 연습생 공개!
+#PRODUCE48 l [#7]’予測不可’ダンスポジションの総合１位練習生公開！
+
+“不可预测”的舞蹈位置的综合1位练习生公开！
+
+#프로듀스48 l [7회] '국.프님 마음 저격' 하트크러쉬ㅣ블랙핑크 ♬뚜두뚜두 @포지션 평가
+#PRODUCE48 l [#7]’国・プ様の心を狙撃’ハートクラッシュㅣBLACKPINK ♬DDU-DU DDU-DU @ポジション評価
+
+BLACKPINK ♬DDU-DU DDU-DU @位置评价
+
+#프로듀스48 l [7회] '한 번 보고 두 번 봐도' 자꾸 보고싶조ㅣLittle Mix ♬Touch @포지션 평가
+#PRODUCE48 l [#7]’１回見ても２回見ても’ジャックポゴシップジョㅣLittle Mix ♬Touch @ポジション評価
+
+Little Mix ♬Touch @位置评价
+
+#프로듀스48 l [7회] '하위권의 반란' 6벤져스ㅣJax Jones ♬Instruction @포지션 평가
+#PRODUCE48 l [#7]’下位圏の反乱’６ベンジャーズㅣJax Jones ♬Instruction @ポジション評価
+
+Jax Jones ♬Instruction @位置评价
+
+#프로듀스48 l [7회] '두 번의 실수는 없다' 내 마음 알조ㅣ방탄소년단 ♬전하지 못한 진심 @포지션 평가
+#PRODUCE48 l [#7]’２度目のミスはない’ ネマウムアルジョㅣBTS ♬The Truth Untold @ポジション評価
+
+BTS ♬The Truth Untold @位置评价
+
+#프로듀스48 l [7회] '발랄 에너지 뿜뿜' 단짠단짠ㅣFitz&The Tantrums ♬Handclap @포지션 평가
+#PRODUCE48 l[#7] ’元気なエネルギーをBBoom BBoom’ ダンチャンダンチャンㅣFitz&The Tantrums♬Handclap @ポジション評価
+
+Fitz&The Tantrums♬Handclap @位置评价
+
+#프로듀스48 l [7회] '마음을 전하고 싶어요' 엘리스ㅣ소녀시대 ♬다시 만난 세계 @포지션 평가 
+#PRODUCE48 l [#7] ’心を伝えたいです’アリスㅣGirls' Generation ♬Into The New World @ポジション評価
+
+Girls' Generation ♬Into The New World @位置评价
+
+#프로듀스48 l [7회] '리더는 처음이라' 함께 한 단계 성장하는 연습생들
+#PRODUCE48 l [#7] ’リーダーは初めてなので’一緒に一歩成長する練習生たち
+
+这是第一次在一起成长的练习生们
+
+https://twitter.com/produce48/status/1022870025953206272
+
+
 https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=26289579
 
 # 【Produce48】二阶段应援认证 180727
