@@ -7,8 +7,10 @@ https://downrose.com/bbs/search.php?url=https%3A%2F%2Fdownrose.com%2Fbbs%2Fsearc
 
 
 【Produce48】第五期 片段合集 180713 EP.05
+
 https://www.youtube.com/user/PlayMnet/videos
 
+https://www.youtube.com/watch?v=SKn0KMMJNwk&list=PL7d9SABxcP1IvHovcUtMdyS8jfd4DEaRN
 
 #프로듀스48 l [NEXT WEEK] 컨셉 평가 무대를 위한 관문, 두 번째 순위 발표식!
 #PRODUCE48 l [NEXT WEEK]コンセプト評価舞台のための関門、２回目の順位発表式！
