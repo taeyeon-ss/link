@@ -1,6 +1,8 @@
 
+#  180727 [VIDEO] ACUVUE FB UPDATE WITH AHN YUJIN💖
+https://twitter.com/AhnYujinIntl/status/1022737707435315200
 
-
+https://m.facebook.com/story.php?story_fbid=1795966303817766&id=321543384593406&ref=page_internal
 
 # 【Produce48】【先公开】位置评价ㅣ♬Touch 180728 EP.7
 
