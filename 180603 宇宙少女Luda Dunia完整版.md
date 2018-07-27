@@ -13,9 +13,10 @@ https://youtu.be/Im236ys2d6A
 
 #인생책다방이 궁금하다면?
 
-https://srv61.clipconverter.cc/download/qbWtf4mloYOwZ2tumJWccXBn5KWmqW9p4pSYa2tmoWJnaW%2B0qc%2FMqHyf1qiZpa2d2A%3D%3D/%5B%EB%AC%B8%ED%99%94%EB%B9%84%EC%A0%84%202030%5D%20%27%EC%9D%B8%EC%83%9D%EC%B1%85%EB%8B%A4%EB%B0%A9%27%20%EC%98%88%EA%B3%A0%ED%8E%B8.mp4
-
-https://s44.123apps.com/vcutter/d/s44C1mU5pzy.flv
+- 유튜브: https://www.youtube.com/user/mcstkorea
+- 페이스북: https://www.facebook.com/mcstkorea/
+- 트위터: https://twitter.com/mcstkorea
+- 블로그: http://blog.naver.com/mcstkorea
 
 #  180727 [VIDEO] ACUVUE FB UPDATE WITH AHN YUJIN💖
 https://twitter.com/AhnYujinIntl/status/1022737707435315200
