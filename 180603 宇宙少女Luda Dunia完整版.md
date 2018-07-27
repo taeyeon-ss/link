@@ -1,5 +1,18 @@
 
 
+
+
+# 【Produce48】【先公开】位置评价ㅣ♬Touch 180728 EP.7
+
+[ENG sub] PRODUCE48 [단독/선공개] 포지션 평가ㅣ♬Touch 180728 EP.7
+
+https://youtu.be/JK_7U64ovRM
+
+https://srv75.clipconverter.cc/download/yrzKkK2G24ewZ2tumJSba3Jh5KWmqXBt4pSYa2tmoGlpY2u0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%84%A0%EA%B3%B5%EA%B0%9C%5D%20%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%E3%85%A3%E2%99%ACTouch%20180728%20EP.7.mp4
+
+
+https://s40.123apps.com/vcutter/d/s40QXvlaaVn.flv
+
 # 宇宙少女苞娜《你的管家》OST合集[20180726]
 
 [MV] 장나라 - Someday [당신의 하우스헬퍼 OST Part.4 (Your House Helper OST Part.4)]
