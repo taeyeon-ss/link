@@ -1,4 +1,31 @@
 
+
+
+# 宇宙少女苞娜《你的管家》6th拍摄花絮[20180728]
+
+[당신의 하우스헬퍼] #6th 메이킹/Kiss씬_"(Heartbeat~♡ 두근두근~♥)훔쳐보지 마세요~!!"
+
+https://www.vlive.tv/video/82102
+
+http://globalv.p.naverrmc.edgesuite.net/global/read/global_v_2018_07_27_22/460c357e-9170-11e8-85af-000000008ca5.mp4?__gda__=1532755059_4f61bea417a776d41d8af8d2bcd050ce
+
+http://d8.online-downloader.com/
+
+http://globalv.p.naverrmc.edgesuite.net/global/read/global_v_2018_07_27_22/460c357e-9170-11e8-85af-000000008ca5.mp4?__gda__=1532755583_df6588437f7ceb1855e4f42594b70e0b
+
+https://s56.123apps.com/vcutter/d/s56hD5a5v0y.flv
+
+
+
+# PRODUCE48 [단독/7회] ′유쾌해서 큰일′ 그들이 웃음을 멈추지 못하는 이유 180727 EP.7
+
+#프로듀스48 l [7회] '유쾌해서 큰일'  그들이 웃음을 멈추지 못하는 이유
+#PRODUCE48 l [#7] '愉快すぎて大変’　彼女たちが笑いを止められない理由
+
+“太愉快了很辛苦”她们不能停止笑的理由
+
+https://youtu.be/yWQq5UNmVQ8
+
 # 宇宙少女（WJSN）“Babyface”LINE贴图动画版[20180724]
 
 우주소녀 WJSN - Babyface (Animation Music Video Version by HyperRabbit LINE Sticker)
