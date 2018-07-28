@@ -1,6 +1,10 @@
 
 
 
+# 宇宙少女苞娜《你的管家》EP.15-16 Cuts 合集 180726
+
+https://www.youtube.com/watch?v=VUAKPMJfSH8&list=PL7d9SABxcP1L82lYclbiWUaHm6UEnvZ8F
+
 # 宇宙少女苞娜《你的管家》6th拍摄花絮[20180728]
 
 [당신의 하우스헬퍼] #6th 메이킹/Kiss씬_"(Heartbeat~♡ 두근두근~♥)훔쳐보지 마세요~!!"
