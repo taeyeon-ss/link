@@ -1,6 +1,11 @@
 
 
 
+# 修改P3为金诗炫 练习服版本 直拍 180629 EP.3
+https://www.bilibili.com/video/av25737299/?p=3
+
+https://www.youtube.com/watch?v=cNCfvVdS7UY
+
 # 宇宙少女苞娜《你的管家》EP.15-16 Cuts 合集 180726
 
 https://www.youtube.com/watch?v=VUAKPMJfSH8&list=PL7d9SABxcP1L82lYclbiWUaHm6UEnvZ8F
