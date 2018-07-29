@@ -1,5 +1,11 @@
 
+# [VID/FULL] 180729 Dunia: Into The New World 두니아-처음 만난 세계 Ep9
 
+https://www.dailymotion.com/video/x6qm1h0 
+
+https://www.dailymotion.com/video/x6qm1hd 
+
+#TVXQ #YunHo #KwonHyunBin #WJSN #Luda
 
 # 修改P3为金诗炫 练习服版本 直拍 180629 EP.3
 https://www.bilibili.com/video/av25737299/?p=3
