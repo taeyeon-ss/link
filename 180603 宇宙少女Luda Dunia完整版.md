@@ -1,6 +1,6 @@
 
  
-
+# 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.08 完整版[20180722]
 [TS] 180729 MBC 두니아 처음만난세계 E09-루다 Cut&풀본
 
 루다 컷 
@@ -13,7 +13,7 @@ http://mgnet.me/drS05C7
 
 http://sendanywhe.re/75RZMSEH
 
-【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.09 Cut[合集][20180729]
+# 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.09 Cut[合集][20180729]
 https://www.youtube.com/watch?v=1cIPrNFHtkw&list=PL7d9SABxcP1JvDZ08ACiC5LGomtIFgixO
 
 # [VID/FULL] 180729 Dunia: Into The New World 두니아-처음 만난 세계 Ep9
