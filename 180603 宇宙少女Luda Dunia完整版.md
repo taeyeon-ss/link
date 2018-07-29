@@ -45,6 +45,8 @@ https://www.dailymotion.com/video/x6qm1hd
 # 修改P3为金诗炫 练习服版本 直拍 180629 EP.3
 https://www.bilibili.com/video/av25737299/?p=3
 
+https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=25737299
+
 https://www.youtube.com/watch?v=cNCfvVdS7UY
 
 # 宇宙少女苞娜《你的管家》EP.15-16 Cuts 合集 180726
