@@ -29,6 +29,8 @@ https://tobogi.com/bbs/board.php?bo_table=korent&wr_id=5810
 
 magnet:?xt=urn:btih:79f9fd3bdde1069b58a4f1e904a2b9359f0daa44
 
+李露多 李露朵
+
 # 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.09 Cut[合集][20180729]
 https://www.youtube.com/watch?v=1cIPrNFHtkw&list=PL7d9SABxcP1JvDZ08ACiC5LGomtIFgixO
 
