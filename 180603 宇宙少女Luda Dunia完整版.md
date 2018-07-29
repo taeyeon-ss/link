@@ -1,4 +1,21 @@
 
+
+
+[TS] 180729 MBC 두니아 처음만난세계 E09-루다 Cut&풀본
+
+루다 컷 
+http://attach.mail.daum.net/bigfile/v1/urls/d/42b5jbBmW2wyQPg82yH65eqGjG4/1ddMQVJBa5JVDBs1NaEl7g
+
+http://sendanywhe.re/LWQ7HFZI
+
+풀본 
+http://mgnet.me/drS05C7	
+
+http://sendanywhe.re/75RZMSEH
+
+【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.09 Cut[合集][20180729]
+https://www.youtube.com/watch?v=1cIPrNFHtkw&list=PL7d9SABxcP1JvDZ08ACiC5LGomtIFgixO
+
 # [VID/FULL] 180729 Dunia: Into The New World 두니아-처음 만난 세계 Ep9
 
 https://www.dailymotion.com/video/x6qm1h0 
