@@ -10,6 +10,10 @@ https://s48.123apps.com/vcutter/d/s48LgzC1IaC.flv
 
 https://uptobox.com/7lfjcmu1uqpj
 
+# 崔艺娜 cooking
+
+https://youtu.be/PN3yPcb3hIM
+
  
 # 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.08 完整版[20180722]
 [TS] 180729 MBC 두니아 처음만난세계 E09-루다 Cut&풀본
