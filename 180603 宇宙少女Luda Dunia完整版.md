@@ -4,10 +4,6 @@ PRODUCE48 [48 비하인드] '연습 또 연습!' 포지션 평가 연습 현장 
 
 https://youtu.be/5SIqDSFN50A
 
-https://srv75.clipconverter.cc/download/zaizsa2FsJSwZ2tumpmcaHBl5KWmqXBt4pSYa2tpm2NpbHC0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B48%20%EB%B9%84%ED%95%98%EC%9D%B8%EB%93%9C%5D%20%27%EC%97%B0%EC%8A%B5%20%EB%98%90%20%EC%97%B0%EC%8A%B5%21%27%20%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20%EC%97%B0%EC%8A%B5%20%ED%98%84%EC%9E%A5%20%EB%B9%84%ED%95%98%EC%9D%B8%EB%93%9C%20180727%20EP.7.mp4
-
-https://s48.123apps.com/vcutter/d/s48LgzC1IaC.flv
-
 https://uptobox.com/7lfjcmu1uqpj
 
 # 崔艺娜 cooking
@@ -45,6 +41,9 @@ https://tobogi.com/bbs/board.php?bo_table=korent&wr_id=5810
 magnet:?xt=urn:btih:79f9fd3bdde1069b58a4f1e904a2b9359f0daa44
 
 李露多 李露朵
+
+# 中字
+https://openload.co/f/IKQzNfzcxjI
 
 # 【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.09 Cut[合集][20180729]
 https://www.youtube.com/watch?v=1cIPrNFHtkw&list=PL7d9SABxcP1JvDZ08ACiC5LGomtIFgixO
