@@ -3,7 +3,7 @@
 # 【合集】国民制作人的应援 国民的花园1阶段认证！【20180711更新】
 https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=26289579
 
-https://www.facebook.com/produce101/videos/691671061168887/  小嶋 真子（AKB48）222
+https://www.facebook.com/produce101/videos/691671061168887/  小嶋 真子（AKB48）222 二阶段
 
 https://www.facebook.com/produce101/videos/691670231168970/  下尾 美羽（AKB48）222
 
@@ -11,7 +11,7 @@ https://www.facebook.com/produce101/videos/691668781169115/  高橋 朱里（AKB
 
 https://www.facebook.com/produce101/videos/691668107835849/  赵宥莉 조유리（STONE MUSIC）222
 
-https://www.facebook.com/produce101/videos/691667064502620/  宮脇 咲良（HKT48）333
+https://www.facebook.com/produce101/videos/691667064502620/  宮脇 咲良（HKT48）333 三阶段
 
 https://www.facebook.com/produce101/videos/691665644502762/  千葉 恵里（AKB48）222
 
@@ -19,9 +19,9 @@ https://www.facebook.com/produce101/videos/691664121169581/  崔艺娜（YUEHUA�
 
 https://www.facebook.com/produce101/videos/691663427836317/  白間 美瑠（NMB48）222
 
-https://www.facebook.com/produce101/videos/691662597836400/  김현아（Collazoo Company）1111
+https://www.facebook.com/produce101/videos/691662597836400/  金贤雅 김현아（Collazoo Company）1111 一阶段
 
-https://www.facebook.com/produce101/videos/691661057836554/  장규리（STONE MUSIC）2222
+https://www.facebook.com/produce101/videos/691661057836554/  张圭悧 장규리（STONE MUSIC）2222
 
 https://www.facebook.com/produce101/videos/691660254503301/  权恩菲 권은비（Woollim）222
 
