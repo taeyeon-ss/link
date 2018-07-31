@@ -1,5 +1,38 @@
 
 
+【合集】国民制作人的应援 国民的花园2阶段认证！【20180731更新】
+https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=26289579
+
+https://www.facebook.com/produce101/videos/692810751054918/ 李彩燕 이채연 （WM）222
+
+https://www.facebook.com/produce101/videos/692803941055599/ 高宥真 고유진 （Block Berry Creative）222
+
+https://www.facebook.com/produce101/videos/692803391055654/ 金诗炫 김시현 （YUEHUA）222
+
+https://www.facebook.com/produce101/videos/692801901055803/ 金彩元 김채원 （Woollim）222
+
+https://www.facebook.com/produce101/videos/692801494389177/ 村川 緋杏（HKT48）222
+
+https://www.facebook.com/produce101/videos/692800307722629/ 宮崎 美穂（AKB48）222
+
+https://www.facebook.com/produce101/videos/692799221056071/ 许允真 허윤진 （PLEDIS）222
+
+https://www.facebook.com/produce101/videos/692797867722873/ 王怡人 왕이런 （YUEHUA）222
+
+https://www.facebook.com/produce101/videos/692797061056287/ 金珉周 김민주 （URBAN WORKS）222
+
+https://www.facebook.com/produce101/videos/692794847723175/ 姜惠元 강혜원 （8D）222
+
+https://www.facebook.com/produce101/videos/692794144389912/ 赵佳贤 조가현 （STARSHIP）111
+
+https://www.facebook.com/produce101/videos/692793207723339/ 俞敏英 유민영 （HOW）222
+
+宇宙少女苞娜《你的管家》[20180731]
+진지한데 엉뚱하고, 냉랭하다가도 스윗한 예측불가 매력남 #김지운=#하석진😍
+
+츤츤데레 #정리요정 #보나 #당신의하우스헬퍼
+https://twitter.com/MyloveKBS/status/1024233207049248768
+
 # 宇宙少女恩熙《人生书茶坊》EP.1[20180730]
 [문화비전2030/인생책다방] 1화 "인생책다방, 입성?"
 
