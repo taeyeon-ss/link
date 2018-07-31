@@ -1,4 +1,61 @@
 
+# [VID] 180731 Cover Brothers EP.8 #EUNSEO & #DAYOUNG Cut (1) 
+
+https://twitter.com/EUNSEOThailand/status/1024321869652971520
+
+[VID] 180731 Cover Brothers EP.8 #EUNSEO & #DAYOUNG Cut (2) #우주소녀 #WJSN #은서 #다영 
+https://twitter.com/EUNSEOThailand/status/1024324067778678784
+
+[VID] 180731 Cover Brothers EP.8 #EUNSEO & #DAYOUNG Cut (3)
+https://twitter.com/EUNSEOThailand/status/1024325376690929664
+
+[VID] 180731 Cover Brothers EP.8 #EUNSEO & #DAYOUNG Cut (4) 
+https://twitter.com/EUNSEOThailand/status/1024327261338497025
+
+[VID] 180731 Cover Brothers EP.8 #EUNSEO & #DAYOUNG Cut (5) #우주소녀 #WJSN #은서 #다영 
+https://twitter.com/EUNSEOThailand/status/1024330094377021440
+
+[VID] 180731 Cover Brothers EP.8 #EUNSEO & #DAYOUNG Cut (6) #우주소녀 #WJSN #은서 #다영
+https://twitter.com/EUNSEOThailand/status/1024331546134630400
+
+[VID] 180731 Cover Brothers EP.8 #EUNSEO & #DAYOUNG Cut (7) #우주소녀 #WJSN #은서 #다영
+https://twitter.com/EUNSEOThailand/status/1024333515804930050
+
+
+# 宇宙少女恩熙多荣《Cover Brothers》EP.08 完整版[180731]
+
+https://www.dailymotion.com/video/x6qwmro
+
+커버 브라더스.E08.180731.HD.mp4
+
+https://www.ondemandkorea.com/cover-brothers-e08.html EP.01-EP.08
+
+https://www.allavsoft.com/how-to/download-ondemandkorea-videos.html
+
+커버 브라더스 E08
+
+# 宇宙少女恩熙多荣《Cover Brothers》EP.08 Cuts[合集][180731]
+
+恩熙多荣Cut
+
+[TS] 180731 XtvN 커버브라더스 E08 - 은서&다영 Cut
+
+http://sendanywhe.re/322Q3XEQ
+
+https://drive.google.com/a/llit.kr/uc?id=1zjwsZZ0OpdeQqveYTZnBbiUUUktI0dQr
+
+http://gall.dcinside.com/board/view/?id=cosmicgirl&no=654388&page=1
+
+https://www.youtube.com/watch?v=-E04uOmeYoc&list=PL7d9SABxcP1LnMiEkbiifVm_x5KBr5JOL
+
+# 宇宙少女庆生短视频 180731
+https://www.instagram.com/p/Bl5p7izHlza/?tagged=%EC%9A%B0%EC%A3%BC%EC%86%8C%EB%85%80
+
+Wjsn members were so excited especially yeonjung & exy 😄 and dawon looks so good without bangs
+
+https://twitter.com/StanWJSN13/status/1024328053269262336
+
+https://twitter.com/YUBEARYJ/status/1024322413117333505
 
 【合集】国民制作人的应援 国民的花园2阶段认证！【20180731更新】
 https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=26289579
