@@ -24,7 +24,37 @@ https://twitter.com/EUNSEOThailand/status/1024333515804930050
 
 # 宇宙少女恩熙任多荣《Cover Brothers》EP.08 完整版[180731]
 
-https://www.dailymotion.com/video/x6qwmro
+https://www.dailymotion.com/video/x6qwmro E08
+
+https://www.dailymotion.com/video/x6q09ff E07
+
+# [XtvN] 커버 브라더스.E06.180717.720p-NEXT
+
+https://torrentwo.com/b/torrent_kortv_ent-53088?page=12
+
+magnet:?xt=urn:btih:8E1DF345B4494F449E09A7E592A7A55BC6897494
+
+http://jjen50.blogspot.com/2018/07/e06180717.html
+
+# [XtvN] 커버브라더스.E05.180710.720p-NEXT
+
+https://torrentwo.com/b/torrent_kortv_ent-52897?page=31
+
+magnet:?xt=urn:btih:C455B4A4CAD29A61E6105302295D9FBF27D9C4A6
+
+https://www.dailymotion.com/video/x6nhle5 커버 브라더스.E04.180703.HD.2of2.mp4
+
+# [XtvN] 커버브라더스.E04.180703.720p-NEXT
+
+https://torrentwo.com/b/torrent_kortv_ent-52696?page=43  
+
+magnet:?xt=urn:btih:CCA00A9F8B45A6016BDEA25CCE87E1E5854EA4D0
+
+http://www.dailymotion.com/video/x6mtonz E03
+
+http://www.dailymotion.com/video/x6m8o0t E02
+
+https://www.dailymotion.com/video/x6lp5ly E01
 
 커버 브라더스.E08.180731.HD.mp4
 
