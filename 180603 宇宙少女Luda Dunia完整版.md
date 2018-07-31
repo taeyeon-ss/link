@@ -56,6 +56,19 @@ http://www.dailymotion.com/video/x6m8o0t E02
 
 https://www.dailymotion.com/video/x6lp5ly E01
 
+https://www.dailymotion.com/video/x6lp52m E01
+
+https://streamango.com/embed/rooetldbcocmqkoe/_E01_180612_720p_mp4 E01 720P
+
+https://streamango.com/f/rooetldbcocmqkoe
+
+
+# XtvN 커버 브라더스.E01.180612.720p NEXT
+
+https://torrentwo.com/b/torrent_kortv_ent-51951?page=54
+
+magnet:?xt=urn:btih:7B999EDF5918A1F6658ED2B147D489D2322E3DC2
+
 커버 브라더스.E08.180731.HD.mp4
 
 https://www.ondemandkorea.com/cover-brothers-e08.html EP.01-EP.08
