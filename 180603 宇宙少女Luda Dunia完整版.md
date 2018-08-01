@@ -107,6 +107,8 @@ https://www.youtube.com/watch?v=DgN-M38qzZY Luda
 
 https://twitter.com/Reversal_S1106/status/1024647111151779840 Exy饭拍
 
+https://www.youtube.com/watch?v=oWYumODysyE Ending by 
+
 # 宇宙少女KMF音乐节全场完整版[20180801]
 Korea Music Festival 2018 Live Stream
 
