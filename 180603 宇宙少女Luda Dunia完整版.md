@@ -12,7 +12,7 @@ https://www.vlive.tv/video/82762?channelCode=F5F127
 http://globalv.p.naverrmc.edgesuite.net/global/read/navertv_2018_08_01_1365/ab1b25a2-9552-11e8-94fa-0000000049b9.mp4?__gda__=1533128409_2620731708330ef2cd3ca270083b923b
 
 ##
-# 宇宙少女2018 KMF 无限大梦想 Dream Comes True表演舞台[20180801]
+# 宇宙少女2018 KMF 无限大梦想(Dream Comes True)表演舞台[20180801]
 
 https://www.youtube.com/watch?v=tLeUQCbVN2g Korea Music Festival 2018 I WJSN - Dream Comes True
 
@@ -46,6 +46,8 @@ https://twitter.com/LEOPISCES0225/status/1024608584535961600  180801 코뮤페 �
 https://twitter.com/PaiParadise/status/1024614977120813056 雪娥MC
 
 https://twitter.com/wujugemini/status/1024618046470516736  EXY Call You Bae 🎶
+
+https://twitter.com/LEOPISCES0225/status/1024634781798096897 结尾
 
 
 # 宇宙少女2018 Korea Music Festival花毯[20180801]
