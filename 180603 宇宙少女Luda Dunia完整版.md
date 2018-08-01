@@ -30,6 +30,9 @@ https://www.dailymotion.com/video/x6qwmro E08
 
 https://www.dailymotion.com/video/x6q09ff E07
 
+
+https://streamango.com/f/dkfrbmapbqtptcac/  커버 브라더스.E07.180724
+
 # [XtvN] 커버 브라더스.E06.180717.720p-NEXT
 
 https://torrentwo.com/b/torrent_kortv_ent-53088?page=12
@@ -37,6 +40,8 @@ https://torrentwo.com/b/torrent_kortv_ent-53088?page=12
 magnet:?xt=urn:btih:8E1DF345B4494F449E09A7E592A7A55BC6897494
 
 http://jjen50.blogspot.com/2018/07/e06180717.html
+
+https://streamango.com/f/onaqlccrqnkkrqdb/  커버 브라더스.E06.180717.  450P
 
 # [XtvN] 커버브라더스.E05.180710.720p-NEXT
 
@@ -46,11 +51,17 @@ magnet:?xt=urn:btih:C455B4A4CAD29A61E6105302295D9FBF27D9C4A6
 
 https://www.dailymotion.com/video/x6nhle5 커버 브라더스.E04.180703.HD.2of2.mp4
 
+https://streamango.com/f/ldefdkllntemokne  커버 브라더스.E05.180710.
+
 # [XtvN] 커버브라더스.E04.180703.720p-NEXT
 
 https://torrentwo.com/b/torrent_kortv_ent-52696?page=43  
 
 magnet:?xt=urn:btih:CCA00A9F8B45A6016BDEA25CCE87E1E5854EA4D0
+
+https://streamango.com/f/lsqtrdtmccrlcqlo/  커버 브라더스.E04.180703
+
+# 
 
 http://www.dailymotion.com/video/x6mtonz E03
 
@@ -60,6 +71,7 @@ https://www.dailymotion.com/video/x6lp5ly E01
 
 https://www.dailymotion.com/video/x6lp52m E01
 
+# 커버 브라더스.E01.180612.720P.MP4
 https://streamango.com/embed/rooetldbcocmqkoe/_E01_180612_720p_mp4 E01 720P
 
 https://streamango.com/f/rooetldbcocmqkoe
@@ -70,6 +82,8 @@ magnet:?xt=urn:btih:AF6930780EB3701E34AFD8D1BE336E3134D5FE43
 
 https://torrentwo.com/b/torrent_kortv_ent-52432?page=62
 
+https://streamango.com/f/mrbqdbranqqblmnn
+
 # XtvN 커버브라더스.E02.180619.1080p NEXT
 
 magnet:?xt=urn:btih:4CC5900E7C1AE598C047603F59F6E1B9204B931B
@@ -79,6 +93,9 @@ https://torrentwo.com/b/torrent_kortv_ent-52162
 http://misovideo.blogspot.com/2018/06/e02180619.html
 
 https://streamango.com/f/aesdfrmtmptrbqal
+
+커버 브라더스.E02.180619.
+
 
 # XtvN 커버 브라더스.E01.180612.720p NEXT
 
