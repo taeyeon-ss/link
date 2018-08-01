@@ -7,7 +7,11 @@ https://www.youtube.com/watch?v=Jjyc2tejPpU
 
 苞娜 Luda 恩熙 雪娥 程潇
 
+https://www.vlive.tv/video/82762?channelCode=F5F127
 
+http://globalv.p.naverrmc.edgesuite.net/global/read/navertv_2018_08_01_1365/ab1b25a2-9552-11e8-94fa-0000000049b9.mp4?__gda__=1533128409_2620731708330ef2cd3ca270083b923b
+
+##
 
 https://www.instagram.com/p/Bl70xzXAPJv/ Luda玩赛车驾驶游戏
 
