@@ -73,9 +73,11 @@ https://twitter.com/PUFF_live/status/1024529991185252354
 
 # 宇宙少女KMF音乐节饭拍[合集][20180801]
 
-https://www.youtube.com/watch?v=SHC-_clnQKU
+https://www.youtube.com/watch?v=SHC-_clnQKU Ending
 
-https://www.youtube.com/watch?v=Q3N99CxCIOY
+https://www.youtube.com/watch?v=Q3N99CxCIOY 全体
+
+https://www.youtube.com/watch?v=8xGglu2fOW8 多荣
 
 # 宇宙少女KMF音乐节全场完整版[20180801]
 Korea Music Festival 2018 Live Stream
