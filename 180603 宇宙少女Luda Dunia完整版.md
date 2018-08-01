@@ -1,4 +1,12 @@
 
+# 【Produce48】紧张又激动♡ 位置评价现场幕后花絮 180727 EP.7
+
+PRODUCE48 [48 비하인드] 긴장 반 설렘 반♡ 포지션 평가 현장 비하인드 180727 EP.7
+
+https://youtu.be/nzab4DwX77M
+
+https://srv83.clipconverter.cc/download/ssasq39zoKWwZ2tunJiab3Fh5KWmqXFr4pSYa2xhmGVpZWy0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B48%20%EB%B9%84%ED%95%98%EC%9D%B8%EB%93%9C%5D%20%EA%B8%B4%EC%9E%A5%20%EB%B0%98%20%EC%84%A4%EB%A0%98%20%EB%B0%98%E2%99%A1%20%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20%ED%98%84%EC%9E%A5%20%EB%B9%84%ED%95%98%EC%9D%B8%EB%93%9C%20180727%20EP.7.mp4
+
 # [VID] 180731 Cover Brothers EP.8 #EUNSEO & #DAYOUNG Cut (1) 
 
 https://twitter.com/EUNSEOThailand/status/1024321869652971520
