@@ -66,6 +66,7 @@ https://twitter.com/LEOPISCES0225/status/1024608260790214656  180801 코뮤페 �
 
 https://twitter.com/LEOPISCES0225/status/1024608584535961600  180801 코뮤페 꿈꾸는 마음으로(2)
 
+# 宇宙少女雪娥2018 KMF MC主持片段[20180801]
 https://twitter.com/PaiParadise/status/1024614977120813056 雪娥MC
 
 https://twitter.com/wujugemini/status/1024618046470516736  EXY Call You Bae 🎶
