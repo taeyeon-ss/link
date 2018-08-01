@@ -24,6 +24,8 @@ https://twitter.com/EUNSEOThailand/status/1024333515804930050
 
 # 宇宙少女恩熙任多荣《Cover Brothers》EP.08 完整版[180731]
 
+https://www.telechargerunevideo.com/en/
+
 https://www.dailymotion.com/video/x6qwmro E08
 
 https://www.dailymotion.com/video/x6q09ff E07
