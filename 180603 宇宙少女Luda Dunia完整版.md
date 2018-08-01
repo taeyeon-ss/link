@@ -64,6 +64,21 @@ https://streamango.com/embed/rooetldbcocmqkoe/_E01_180612_720p_mp4 E01 720P
 
 https://streamango.com/f/rooetldbcocmqkoe
 
+# XtvN 커버브라더스.E03.180626.720p NEXT
+
+magnet:?xt=urn:btih:AF6930780EB3701E34AFD8D1BE336E3134D5FE43
+
+https://torrentwo.com/b/torrent_kortv_ent-52432?page=62
+
+# XtvN 커버브라더스.E02.180619.1080p NEXT
+
+magnet:?xt=urn:btih:4CC5900E7C1AE598C047603F59F6E1B9204B931B
+
+https://torrentwo.com/b/torrent_kortv_ent-52162
+
+http://misovideo.blogspot.com/2018/06/e02180619.html
+
+https://streamango.com/f/aesdfrmtmptrbqal
 
 # XtvN 커버 브라더스.E01.180612.720p NEXT
 
