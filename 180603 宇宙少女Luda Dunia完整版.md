@@ -113,7 +113,20 @@ https://www.youtube.com/watch?v=DgN-M38qzZY Luda
 
 https://twitter.com/Reversal_S1106/status/1024647111151779840 Exy饭拍
 
-https://www.youtube.com/watch?v=oWYumODysyE Ending by 
+https://www.youtube.com/watch?v=oWYumODysyE Ending by Pment
+
+https://www.youtube.com/watch?v=TzDeM9F6oiQ Dreams come true by Spinel
+
+https://www.youtube.com/watch?v=zzYbg7GTiQg Exy By JJaGa
+
+https://www.youtube.com/watch?v=wj4MuRUPdGo Luda By Pment
+
+https://www.youtube.com/watch?v=xcd7gD29_Hw Seola MC By JJa Ga
+
+https://www.youtube.com/watch?v=aq_2ePPINA8 Exy Dreams come true by Love Actually
+
+
+
 
 # 宇宙少女KMF音乐节全场完整版[20180801]
 Korea Music Festival 2018 Live Stream
