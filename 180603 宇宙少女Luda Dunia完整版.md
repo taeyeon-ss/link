@@ -47,6 +47,12 @@ https://youtu.be/KcrF9skbEc8
 [Ending] 全體藝人 - Some
 https://youtu.be/LcvXqXVYkGE
 
+# 宇宙少女多荣IG短视频[20180801]
+
+@dayomi99 초집중🙄
+
+https://www.instagram.com/p/Bl8JYQxFilF/?taken-by=dayomi99
+
 # 宇宙少女Luda恩熙多荣KMF后台玩游戏[20180801]
 
 https://www.instagram.com/p/Bl70xzXAPJv/ Luda玩赛车驾驶游戏
