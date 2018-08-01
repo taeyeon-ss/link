@@ -26,10 +26,12 @@ https://twitter.com/EUNSEOThailand/status/1024333515804930050
 
 https://www.telechargerunevideo.com/en/
 
+# 种子搜索
+https://torrentwo.com/p/s/google.php?q=XtvN+%EC%BB%A4%EB%B2%84%EB%B8%8C%EB%9D%BC%EB%8D%94%EC%8A%A4.E03
+
 https://www.dailymotion.com/video/x6qwmro E08
 
 https://www.dailymotion.com/video/x6q09ff E07
-
 
 https://streamango.com/f/dkfrbmapbqtptcac/  커버 브라더스.E07.180724
 
