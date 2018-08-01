@@ -1,4 +1,33 @@
 
+# 宇宙少女Munpia广告拍摄花絮UZZU TAPE EP.49[20190801]
+
+[UZZU TAPE] EP.49 우주소녀, 문피아에 빠져들다!
+
+https://www.youtube.com/watch?v=Jjyc2tejPpU
+
+
+
+https://www.instagram.com/p/Bl70xzXAPJv/ Luda玩赛车驾驶游戏
+
+https://twitter.com/PaiParadise/status/1024602618578911233 恩熙多荣玩街机
+
+https://www.instagram.com/p/Bl7xZwsFRC1/
+
+https://www.instagram.com/p/Bl7vVAynpDb/
+
+
+https://twitter.com/LEOPISCES0225/status/1024613393989287941  180801 코뮤페 야하고 싶어-엑시(1)
+
+https://twitter.com/LEOPISCES0225/status/1024613657307566080  180801 코뮤페 야하고 싶어-엑시(2)
+
+https://twitter.com/LEOPISCES0225/status/1024608260790214656  180801 코뮤페 꿈꾸는 마음으로(1)
+
+https://twitter.com/LEOPISCES0225/status/1024608584535961600  180801 코뮤페 꿈꾸는 마음으로(2)
+
+https://twitter.com/PaiParadise/status/1024614977120813056 雪娥MC
+
+https://twitter.com/wujugemini/status/1024618046470516736  EXY Call You Bae 🎶
+
 
 # 宇宙少女2018 Korea Music Festival花毯[20180801]
 
