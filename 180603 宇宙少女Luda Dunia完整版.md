@@ -47,11 +47,13 @@ https://youtu.be/KcrF9skbEc8
 [Ending] 全體藝人 - Some
 https://youtu.be/LcvXqXVYkGE
 
-# 
+# 宇宙少女Luda恩熙多荣KMF后台玩游戏[20180801]
 
 https://www.instagram.com/p/Bl70xzXAPJv/ Luda玩赛车驾驶游戏
 
 https://twitter.com/PaiParadise/status/1024602618578911233 恩熙多荣玩街机
+
+https://twitter.com/PaiParadise/status/1024606939865436161
 
 https://www.instagram.com/p/Bl7xZwsFRC1/
 
