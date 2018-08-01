@@ -21,6 +21,7 @@ https://www.youtube.com/watch?v=tLeUQCbVN2g Korea Music Festival 2018 I WJSN - D
 
 # 宇宙少女Exy 2018 KMF特别舞台(Call You Bae)[20180801]
 
+https://www.youtube.com/watch?v=w0b3hluO9fM 无banner
 
 https://www.youtube.com/watch?v=o9U1OUKf344  Korea Music Festival 2018 I SF9 InSeong & WJSN Exy – Call You Bae ( Special Stage )
 
@@ -69,6 +70,8 @@ https://twitter.com/PUFF_live/status/1024529991185252354
 # 宇宙少女KMF音乐节饭拍[合集][20180801]
 
 https://www.youtube.com/watch?v=SHC-_clnQKU
+
+https://www.youtube.com/watch?v=Q3N99CxCIOY
 
 # 宇宙少女KMF音乐节全场完整版[20180801]
 Korea Music Festival 2018 Live Stream
