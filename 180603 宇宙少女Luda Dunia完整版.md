@@ -73,6 +73,8 @@ magnet:?xt=urn:btih:a2925f3d46398cc4e3eb034fe05325aa734cff5d E06
 
 https://torrentgaja.com/bbs/board.php?bo_table=kortv2&wr_id=4212 
 
+https://torrentsoda.com/%EA%B5%AD%EB%82%B4%EB%B0%A9%EC%86%A1/%EC%98%88%EB%8A%A5?vid=4587
+
 
 # [XtvN] 커버브라더스.E05.180710.720p-NEXT
 
