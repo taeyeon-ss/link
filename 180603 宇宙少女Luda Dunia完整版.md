@@ -1,3 +1,15 @@
+# 宇宙少女2018 KMF音乐节完整Cut[高清1080P][20180801]
+
+[TS]180801 코리아뮤직페스티벌(KMF) WJSN CUT
+
+0801.M-ON! HD.KMF.우주소녀 컷.MPEG2.AAC.1080i.ts
+꿈꾸는 마음으로 + 엑시 듀엣 + MC 설아 + 엔딩(full)
+
+구글드라이브
+https://drive.google.com/open?id=1Qkd1d6ZOGKoGBzO-wenQ4TmtGjkqPgWy
+
+센드애니웨어 기차 (48시간 만료)
+http://sendanywhe.re/T3JVQKZY
 
 [TS] 180801 당신의 하우스 헬퍼 E17, 18-보나 Cut&풀본
 
