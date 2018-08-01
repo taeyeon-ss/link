@@ -25,7 +25,9 @@ https://www.youtube.com/watch?v=w0b3hluO9fM 无banner
 
 https://www.youtube.com/watch?v=o9U1OUKf344  Korea Music Festival 2018 I SF9 InSeong & WJSN Exy – Call You Bae ( Special Stage )
 
+[Special Stage] Exy & 仁誠(SF9) - CALL YOU BAE
 
+https://youtu.be/KcrF9skbEc8
 
 
 # 
