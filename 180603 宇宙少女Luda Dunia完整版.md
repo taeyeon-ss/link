@@ -12,6 +12,19 @@ https://www.vlive.tv/video/82762?channelCode=F5F127
 http://globalv.p.naverrmc.edgesuite.net/global/read/navertv_2018_08_01_1365/ab1b25a2-9552-11e8-94fa-0000000049b9.mp4?__gda__=1533128409_2620731708330ef2cd3ca270083b923b
 
 ##
+# 宇宙少女2018 KMF 无限大梦想 Dream Comes True表演舞台[20180801]
+
+https://www.youtube.com/watch?v=tLeUQCbVN2g Korea Music Festival 2018 I WJSN - Dream Comes True
+
+# 宇宙少女Exy 2018 KMF特别舞台(Call You Bae)[20180801]
+
+
+https://www.youtube.com/watch?v=o9U1OUKf344  Korea Music Festival 2018 I SF9 InSeong & WJSN Exy – Call You Bae ( Special Stage )
+
+
+
+
+# 
 
 https://www.instagram.com/p/Bl70xzXAPJv/ Luda玩赛车驾驶游戏
 
