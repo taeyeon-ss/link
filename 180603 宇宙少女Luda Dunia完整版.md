@@ -61,11 +61,18 @@ https://streamango.com/f/dkfrbmapbqtptcac/  커버 브라더스.E07.180724
 
 https://torrentwo.com/b/torrent_kortv_ent-53088?page=12
 
-magnet:?xt=urn:btih:8E1DF345B4494F449E09A7E592A7A55BC6897494
+magnet:?xt=urn:btih:8E1DF345B4494F449E09A7E592A7A55BC6897494 E06
 
 http://jjen50.blogspot.com/2018/07/e06180717.html
 
 https://streamango.com/f/onaqlccrqnkkrqdb/  커버 브라더스.E06.180717.  450P
+
+magnet:?xt=urn:btih:b44b82a4bc6c35f6ad5e9fceefef9509c17fba74 E06
+
+magnet:?xt=urn:btih:a2925f3d46398cc4e3eb034fe05325aa734cff5d E06
+
+https://torrentgaja.com/bbs/board.php?bo_table=kortv2&wr_id=4212 
+
 
 # [XtvN] 커버브라더스.E05.180710.720p-NEXT
 
