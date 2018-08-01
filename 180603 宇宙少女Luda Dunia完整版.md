@@ -76,6 +76,8 @@ https://twitter.com/wujugemini/status/1024618046470516736  EXY Call You Bae 🎶
 https://twitter.com/LEOPISCES0225/status/1024634781798096897 结尾
 
 
+
+
 # 宇宙少女2018 Korea Music Festival花毯[20180801]
 
 180801 WJSN (우주소녀) - Flower Carpet @ 2018 Korea Music Festival
@@ -102,6 +104,8 @@ https://www.youtube.com/watch?v=70NGHwfFuvI Ending By Mera
 https://www.youtube.com/watch?v=EtFbFJwoceg Dreams come true 饭拍
 
 https://www.youtube.com/watch?v=DgN-M38qzZY Luda
+
+https://twitter.com/Reversal_S1106/status/1024647111151779840 Exy饭拍
 
 # 宇宙少女KMF音乐节全场完整版[20180801]
 Korea Music Festival 2018 Live Stream
