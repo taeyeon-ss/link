@@ -29,6 +29,8 @@ https://www.youtube.com/watch?v=o9U1OUKf344  Korea Music Festival 2018 I SF9 InS
 
 https://youtu.be/KcrF9skbEc8
 
+[Ending] 全體藝人 - Some
+https://youtu.be/LcvXqXVYkGE
 
 # 
 
