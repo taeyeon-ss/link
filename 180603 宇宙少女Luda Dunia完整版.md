@@ -148,6 +148,10 @@ https://www.youtube.com/watch?v=_dmKy_qwM-Y Exy
 
 https://www.youtube.com/watch?v=eOf5P25JAss Exy
 
+https://www.youtube.com/watch?v=LYJ2X5tvQUk 红毯
+
+https://www.youtube.com/watch?v=7jPtHB6rjno 谈话 
+
 
 
 
