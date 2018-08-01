@@ -1,3 +1,10 @@
+
+
+# 宇宙少女苞娜《你的管家》E17-18 Cuts[合集][180801]
+https://www.youtube.com/watch?v=RYX2ZxzlewY&list=PL7d9SABxcP1KZGfc4kX8xhDOHYZBU5FmF
+
+kbs drama 
+
 # 宇宙少女2018 KMF音乐节完整Cut[高清1080P][20180801]
 
 [TS]180801 코리아뮤직페스티벌(KMF) WJSN CUT
