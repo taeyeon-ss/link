@@ -156,7 +156,13 @@ https://twitter.com/seolastudio/status/1024650956238012416 Seola Dreams Come Tru
 
 https://www.youtube.com/watch?v=8KhmIIaSHQY  Luda Dreams Come True by Spinel
 
+https://www.youtube.com/watch?v=8SsCpyo55sY  Exy by ODS
 
+https://www.youtube.com/watch?v=pCzPgP_UF2Y Luda Dreams Come True by ODS
+
+https://www.youtube.com/watch?v=EohcMddnVSc WJSN by ODS
+
+https://www.youtube.com/watch?v=__faiG9mHlo Seola MC by ODS
 
 
 # 宇宙少女KMF音乐节全场完整版[20180801]
