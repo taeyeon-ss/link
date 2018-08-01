@@ -1,4 +1,72 @@
 
+
+# 宇宙少女KMF音乐节饭拍[合集][20180801]
+
+# 宇宙少女KMF音乐节全场完整版[20180801]
+Korea Music Festival 2018 Live Stream
+
+https://www.youtube.com/watch?v=gDu-Zd5NNGU
+
+Korea Music Festival 2018 Live Stream
+-August 1st-
+iKON
+Wanna One
+TWICE
+MAMAMOO
+OH MY GIRL
+SF9
+Laboum
+WJSN
+VICTON
+Weki Meki
+NEONPUNCH
+Kim DongHan
+HASHTAG
+TRCNG
+H.U.B
+KARD
+IN2IT
+FLASHE
+HALO
+Joelle
+GBB
+Lim ChaeEon
+Woo JinYoung X Kim HyunSoo
+The Brothers
+MYTEEN
+SOUL LATIDO
+VROMANCE
+
+August 2nd-
+BTOB
+SHINee
+Apink
+EXID
+NCT 127
+MOMOLAND
+Snuper
+AOA
+Nine Muses
+Gugudan
+TheEastLight
+N.Flying
+Seol HaYoon
+WALWARI
+FAVORITE
+Grey-ish
+14U
+WeAreYoung
+South Club
+NICK&SAMMY
+TREI
+Stray Kids
+Jeon MinKyung
+IMFACT
+Bigflo
+ChungHa
+THE BOYZ
+ACE
+
 # 【Produce48】紧张又激动♡ 位置评价现场幕后花絮 180727 EP.7
 
 PRODUCE48 [48 비하인드] 긴장 반 설렘 반♡ 포지션 평가 현장 비하인드 180727 EP.7
