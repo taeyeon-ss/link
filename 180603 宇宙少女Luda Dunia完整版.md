@@ -31,6 +31,18 @@ https://torrentwo.com/p/s/google.php?q=XtvN+%EC%BB%A4%EB%B2%84%EB%B8%8C%EB%9D%BC
 
 https://www.dailymotion.com/video/x6qwmro E08
 
+# [XtvN] 커버 브라더스.E07.180724.720p-NEXT
+
+magnet:?xt=urn:btih:BC3D74DFE582A2DB162F849467D81284FF52A0B0
+
+https://torrentwo.com/b/torrent_kortv_ent-53264?sfl=wr_subject%7C%7Cwr_content&stx=720p&sop=and
+
+magnet:?xt=urn:btih:BC3D74DFE582A2DB162F849467D81284FF52A0B0
+
+https://torrentwo.com/b/torrent_kortv_ent-53264?page=14
+
+--
+
 https://www.dailymotion.com/video/x6q09ff E07
 
 https://streamango.com/f/dkfrbmapbqtptcac/  커버 브라더스.E07.180724
