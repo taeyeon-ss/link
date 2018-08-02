@@ -1,4 +1,28 @@
 
+
+
+
+https://www.facebook.com/produce101/videos/693934570942536/  罗高恩 나고은 （RBW）111
+
+https://www.facebook.com/produce101/videos/693933000942693/  山田 野絵（NGT48）222
+
+https://www.facebook.com/produce101/videos/693932187609441/  裵恩英 배은영 （STONE MUSIC）222
+
+https://www.facebook.com/produce101/videos/693931247609535/  金娜荣 김나영 （BANANA CULTURE）222
+
+https://www.facebook.com/produce101/videos/693929720943021/  中西 智代梨（AKB48）222
+
+https://www.facebook.com/produce101/videos/693928430943150/  浅井 七海（AKB48）222
+
+https://www.facebook.com/produce101/videos/693926757609984/  武藤 十夢（AKB48）222
+
+https://www.facebook.com/produce101/videos/693926084276718/  村瀬 紗英（NMB48）222
+
+https://www.facebook.com/produce101/videos/693924447610215/  金镀我 김도아 （FENT）222
+
+https://www.facebook.com/produce101/videos/693923360943657/  李诗安 이시안 （STONE MUSIC）222
+
+
 # 宇宙少女恩熙《人生书茶坊》EP.4[20180802]
 https://youtu.be/TLe-U_JFOj8
 
