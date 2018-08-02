@@ -1,5 +1,15 @@
 
 
+# 宇宙少女俞延静生日快乐！[20180803]
+https://twitter.com/Koreaboo/status/1025034053488205826
+
+
+https://twitter.com/STARSHIPent/status/1025033510816366592
+
+https://twitter.com/1theK/status/1025033487667974150 1theK
+
+https://twitter.com/kpoppingcom/status/1025033484077649920
+
 # Luda玩游戏 KMF 180801
 https://twitter.com/RealLUDABar/status/1024903386884268033
 
@@ -68,6 +78,7 @@ https://www.youtube.com/watch?v=DQRSmJFvbHk Dreams Come True 完整版1080P
 https://www.youtube.com/watch?v=8C1b2Fi9uF4 Ending by supershinstudio
 
 # 
+https://www.youtube.com/watch?v=RNKYXLWrAvM Exy Special Stage by mang2goon
 
 https://www.youtube.com/watch?v=GrCluJ4BqG4 Ending Stage by mang2goon
 
