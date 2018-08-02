@@ -1,6 +1,16 @@
 
 
 
+# 【Produce48】【预告】冲击！动荡的排名！第二次排名发表式 180803 EP.8
+
+PRODUCE48 [8회/예고] 충격! 요동치는 순위! 두 번째 순위 발표식 180803 EP.8
+
+https://www.youtube.com/watch?v=ODqWh3lZu6s
+
+https://srv53.clipconverter.cc/download/u9eabJGAraawZ2tunpOYaGtn5KWmqW5r4pSYa2xinGNlZW20qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B8%ED%9A%8C%2F%EC%98%88%EA%B3%A0%5D%20%EC%B6%A9%EA%B2%A9%21%20%EC%9A%94%EB%8F%99%EC%B9%98%EB%8A%94%20%EC%88%9C%EC%9C%84%21%20%EB%91%90%20%EB%B2%88%EC%A7%B8%20%EC%88%9C%EC%9C%84%20%EB%B0%9C%ED%91%9C%EC%8B%9D%20180803%20EP.8.mp4
+
+https://s36.123apps.com/vcutter/d/s36C1DQV2aY.flv
+
 # 宇宙少女苞娜《你的管家》E19-20 Cuts 180802
 https://www.youtube.com/watch?v=-mseGqQF1f4&list=PL7d9SABxcP1KP3XabmtxetnDvXbm1c_F5
 
