@@ -1,5 +1,12 @@
 
 
+# # 宇宙少女苞娜《你的管家》E19-20 完整版 180802
+[TS] 180802 당신의 하우스 헬퍼 E19, 20-보나 Cut&풀본
+
+https://drive.google.com/a/llit.kr/uc?id=1n1rM36-yePO-bvNbGGb8j8T9uWJPphRt
+
+https://drive.google.com/a/llit.kr/uc?id=1Haki4MZVAelSqIn-mMxnmZn5C5V6kQOt	
+
 
 # 【Produce48】【预告】冲击！动荡的排名！第二次排名发表式 180803 EP.8
 
