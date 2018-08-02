@@ -15,6 +15,8 @@ https://www.youtube.com/watch?v=U-1IAaHV8Ic
 
 https://srv85.clipconverter.cc/download/0q%2BYe4iAtZewZ2tunZibaWpk5KWmqXFt4pSYa2ximGJmZWy0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%ED%92%80%EB%B2%84%EC%A0%84%5D%20%ED%95%98%ED%8A%B8%ED%81%AC%EB%9F%AC%EC%89%AC%E3%85%A3%EB%B8%94%EB%9E%99%ED%95%91%ED%81%AC%20%E2%99%AC%EB%9A%9C%EB%91%90%EB%9A%9C%EB%91%90%20%40%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180727%20EP.7.mp4
 
+https://s44.123apps.com/vcutter/d/s44PcdPIyJQ.flv
+
 # 【Produce48】【完整版】 Wanna One ♬Energetic @位置评价 180727 EP.7
 
 PRODUCE48 [풀버전] 에너자이저ㅣWanna One ♬Energetic @位置评价 180727 EP.7
