@@ -22,6 +22,8 @@ https://www.youtube.com/watch?v=U4WnJ9BAGBg
 
 https://srv75.clipconverter.cc/download/rNHPfoWCnWuwZ2tunZicaGpp5KWmqXBt4pSYa2xhoWpkZmm0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%ED%92%80%EB%B2%84%EC%A0%84%5D%201%EB%93%B1%20%ED%95%A0%EA%B2%8C%21%20%EB%AF%B8%EC%95%88%ED%95%B4U~%E3%85%A3Demi%20Lovato%20%E2%99%ACSorry%20Not%20Sorry%20%40%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180727%20EP.7.mp4
 
+https://s52.123apps.com/vcutter/d/s52ldInd7uY.flv
+
 
 # 宇宙少女苞娜《你的管家》E17-18 Cuts[合集][180801]
 https://www.youtube.com/watch?v=RYX2ZxzlewY&list=PL7d9SABxcP1KZGfc4kX8xhDOHYZBU5FmF
