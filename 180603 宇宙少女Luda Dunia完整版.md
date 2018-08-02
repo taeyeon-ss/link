@@ -2,7 +2,17 @@
 
 # 【Produce48】【合集】 位置评价 舞台 完整版 180727 EP.7
 
+https://www.youtube.com/watch?v=GllVjTMqdEg&list=PL7d9SABxcP1IfZtmuz9TMoCaxneHhWHCd
+
 https://www.youtube.com/user/PlayMnet/videos
+
+# 【Produce48】【完整版】 Wanna One ♬Energetic @位置评价 180727 EP.7
+
+PRODUCE48 [풀버전] 에너자이저ㅣWanna One ♬Energetic @位置评价 180727 EP.7
+
+https://srv84.clipconverter.cc/download/2rWqprJm4auwZ2tunZmUcWln5KWmqXFs4pSYa2xhoWtrZnC0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%ED%92%80%EB%B2%84%EC%A0%84%5D%20%EC%97%90%EB%84%88%EC%9E%90%EC%9D%B4%EC%A0%80%E3%85%A3%EC%9B%8C%EB%84%88%EC%9B%90%20%E2%99%AC%EC%97%90%EB%84%88%EC%A0%9C%ED%8B%B1%20%40%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180727%20EP.7.mp4
+
+https://s38.123apps.com/vcutter/d/s38jH6vcMqh.flv
 
 # 【Produce48】【完整版】 In to youㅣAriana Grande ♬Side To Side @位置评价 180727 EP.7
 
