@@ -1,6 +1,14 @@
 
 
-https://www.youtube.com/watch?v=DQRSmJFvbHk Dreams Come True 完整版
+[Replay] 2017 Korea Music Festival Backstage
+
+https://m.vlive.tv/video/42770
+
+http://globalv.p.naverrmc.edgesuite.net/global/read/global_v_2017_10_19_4/485b8330-b4b0-11e7-a53b-0000000041ed.mp4?__gda__=1533199344_3ad39fd52548564f86e9b2f4dce4dc27
+
+# 
+
+https://www.youtube.com/watch?v=DQRSmJFvbHk Dreams Come True 完整版1080P
 
 https://www.youtube.com/watch?v=8C1b2Fi9uF4 Ending by supershinstudio
 
