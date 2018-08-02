@@ -1,5 +1,9 @@
 
 
+
+# 宇宙少女苞娜《你的管家》E19-20 Cuts 180802
+https://www.youtube.com/watch?v=-mseGqQF1f4&list=PL7d9SABxcP1KP3XabmtxetnDvXbm1c_F5
+
 # 宇宙少女俞延静生日快乐！[20180803]
 https://twitter.com/Koreaboo/status/1025034053488205826
 
