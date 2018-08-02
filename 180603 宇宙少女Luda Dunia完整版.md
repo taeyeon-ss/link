@@ -1,6 +1,9 @@
 
 
+# Luda玩游戏 KMF 180801
+https://twitter.com/RealLUDABar/status/1024903386884268033
 
+#
 
 https://www.facebook.com/produce101/videos/693934570942536/  罗高恩 나고은 （RBW）111
 
