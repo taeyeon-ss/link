@@ -441,6 +441,7 @@ https://torrentgaja.com/bbs/board.php?bo_table=kortv2&wr_id=4212
 
 https://torrentsoda.com/%EA%B5%AD%EB%82%B4%EB%B0%A9%EC%86%A1/%EC%98%88%EB%8A%A5?vid=4587
 
+https://torrentlin.com/m/bbs/board.php?bo_table=torrent_kortv_ent&wr_id=2130 有效！，可以下载种子
 
 # [XtvN] 커버브라더스.E05.180710.720p-NEXT
 
