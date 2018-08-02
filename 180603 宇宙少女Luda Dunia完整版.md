@@ -6,6 +6,7 @@ https://www.youtube.com/watch?v=GllVjTMqdEg&list=PL7d9SABxcP1IfZtmuz9TMoCaxneHhW
 
 https://www.youtube.com/user/PlayMnet/videos
 
+赵佳贤
 
 # 【Produce48】【完整版】BLACKPINK ♬DDU-DU DDU-DU @位置评价 180727 EP.7
 
