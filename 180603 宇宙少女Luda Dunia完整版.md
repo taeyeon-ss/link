@@ -19,6 +19,9 @@ https://www.youtube.com/watch?v=DQRSmJFvbHk Dreams Come True 完整版1080P
 https://www.youtube.com/watch?v=8C1b2Fi9uF4 Ending by supershinstudio
 
 # 
+
+https://www.youtube.com/watch?v=CjrK7KuDSXA Luda By Chori
+
 https://www.youtube.com/watch?v=li2nqNW6PUM Eunseo By Chori
 
 https://www.youtube.com/watch?v=x5h8Suv_sC8 Dawon
