@@ -38,6 +38,10 @@ https://twitter.com/LEOPISCES0225/status/1024937417587843074
 
 https://www.instagram.com/p/Bl-GpX7H764/
 
+https://twitter.com/beagledawoni/status/1024988227491442688 P5
+
+[VID] 180802 It's seems like Dawon, MindU & Yoo Seungwoo is doing a busking @ Seoul National University Hospital ❤️ cr yonnie_1992
+
 
 # 宇宙少女恩熙IG Story 180802
 https://www.instagram.com/_eunseo_v/
