@@ -1,5 +1,28 @@
 
 
+# 【Produce48】【合集】 位置评价 舞台 完整版 180727 EP.7
+
+https://www.youtube.com/user/PlayMnet/videos
+
+# 【Produce48】【完整版】 In to youㅣAriana Grande ♬Side To Side @位置评价 180727 EP.7
+
+PRODUCE48 [풀버전] In to youㅣAriana Grande ♬Side To Side @포지션 평가 180727 EP.7
+
+https://www.youtube.com/watch?v=cA0OGVc6m14
+
+https://srv77.clipconverter.cc/download/27WkgW53tmewZ2tunZmTbmxj5KWmqXBv4pSYa2xhoWlraG20qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%ED%92%80%EB%B2%84%EC%A0%84%5D%20In%20to%20you%E3%85%A3Ariana%20Grande%20%E2%99%ACSide%20To%20Side%20%40%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180727%20EP.7.mp4
+
+https://s41.123apps.com/vcutter/d/s418cHVGspM.flv
+
+# 【Produce48】【完整版】 Demi Lovato ♬Sorry Not Sorry @位置评价 180727 EP.7
+
+PRODUCE48 [풀버전] 1등 할게! 미안해U~ㅣDemi Lovato ♬Sorry Not Sorry @포지션 평가 180727 EP.7
+
+https://www.youtube.com/watch?v=U4WnJ9BAGBg
+
+https://srv75.clipconverter.cc/download/rNHPfoWCnWuwZ2tunZicaGpp5KWmqXBt4pSYa2xhoWpkZmm0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%ED%92%80%EB%B2%84%EC%A0%84%5D%201%EB%93%B1%20%ED%95%A0%EA%B2%8C%21%20%EB%AF%B8%EC%95%88%ED%95%B4U~%E3%85%A3Demi%20Lovato%20%E2%99%ACSorry%20Not%20Sorry%20%40%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180727%20EP.7.mp4
+
+
 # 宇宙少女苞娜《你的管家》E17-18 Cuts[合集][180801]
 https://www.youtube.com/watch?v=RYX2ZxzlewY&list=PL7d9SABxcP1KZGfc4kX8xhDOHYZBU5FmF
 
