@@ -1,5 +1,19 @@
 
 
+
+
+#【Produce48】【先公开】'感觉+才气' 练习生入场 180803 EP.8
+
+PRODUCE48 [단독/선공개] '센스+재치' 연습생 입장 180803 EP.8
+
+https://youtu.be/NuLib6caU4A
+
+https://srv81.clipconverter.cc/download/sJrKi4lx356wZ2tunpiaanFh5KWmqXFp4pSYa2xioWVnZm%2B0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%2F%EC%84%A0%EA%B3%B5%EA%B0%9C%5D%20%27%EC%84%BC%EC%8A%A4%2B%EC%9E%AC%EC%B9%98%27%20%EC%97%B0%EC%8A%B5%EC%83%9D%20%EC%9E%85%EC%9E%A5%20180803%20EP.8.mp4
+
+https://s37.123apps.com/vcutter/d/s37vCbgK4sQ.flv
+
+
+
 # # 宇宙少女苞娜《你的管家》E19-20 完整版 180802
 [TS] 180802 당신의 하우스 헬퍼 E19, 20-보나 Cut&풀본
 
