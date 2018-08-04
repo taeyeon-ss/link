@@ -1,5 +1,13 @@
 
 
+
+# Live - Korea Music Festival 2018 Day 2nd (BTOB, STRAY KID, SHINee, APINK, NCT 127, MOMOLAND )
+https://www.youtube.com/watch?v=hZx3ZdLOQmE
+
+https://www.youtube.com/watch?v=JqGpJ-kGAM8
+
+https://www.youtube.com/watch?v=6lq2Z0Ak9yc
+
 # 宇宙少女多荣 签售饭拍 180401  
 https://youtu.be/QJaJL-yMjDw
 
