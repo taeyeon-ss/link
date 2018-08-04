@@ -1,5 +1,14 @@
 
 
+宇宙少女多荣 签售 https://youtu.be/QJaJL-yMjDw
+
+https://www.youtube.com/watch?v=CIheMKYJlxE Exy by vendenge
+
+https://www.youtube.com/watch?v=7GnwC00TTSg Dreams Come True by vendenge
+
+https://www.youtube.com/watch?v=wAnl6mCAM4s yeonjung by day ful
+
+https://www.youtube.com/watch?v=LYoJiZMhIlg Seola by Everlasting Snow
 
 
 # 宇宙少女苞娜《你的管家》7th拍摄花絮[20180804]
@@ -22,8 +31,7 @@ https://www.youtube.com/watch?v=Ujkrc6Vguy4&list=PL7d9SABxcP1Kyh8lhd0FKKFIry37H_
 Elite 俞延静 苞娜生日 动图
 https://twitter.com/StanWJSN13/status/1025536431467294722
 
-宇宙少女多荣
-https://youtu.be/QJaJL-yMjDw
+
 
 
 # 苞娜 你的管家 EP 花絮
