@@ -1,4 +1,17 @@
 
+
+# 【Produce48】【合集】概念评价练习视频 180803 EP.8
+https://www.youtube.com/watch?v=Ujkrc6Vguy4&list=PL7d9SABxcP1Kyh8lhd0FKKFIry37H_Jew
+
+宇宙少女苞娜 你的管家 花絮 kba drama vlive
+
+Elite 俞延静 苞娜生日 动图
+https://twitter.com/StanWJSN13/status/1025536431467294722
+
+宇宙少女多荣
+https://youtu.be/QJaJL-yMjDw
+
+
 # 苞娜 你的管家 EP 花絮
 https://twitter.com/b_bunniii/status/1025266794901069824
 
