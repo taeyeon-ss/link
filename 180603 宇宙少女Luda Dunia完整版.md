@@ -10,7 +10,7 @@ https://www.vlive.tv/video/83263
 
 http://globalv.p.naverrmc.edgesuite.net/global/read/global_v_2018_08_04_326/d0e6657c-9778-11e8-94fa-0000000049b9.mp4?__gda__=1533364980_891ef972c53c86136b83807978d6db8b
 
-
+金知妍
 
 # 【Produce48】【合集】概念评价练习视频 180803 EP.8
 https://www.youtube.com/watch?v=Ujkrc6Vguy4&list=PL7d9SABxcP1Kyh8lhd0FKKFIry37H_Jew
