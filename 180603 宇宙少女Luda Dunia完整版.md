@@ -1,16 +1,11 @@
 
 
-宇宙少女多荣 签售 https://youtu.be/QJaJL-yMjDw
+# 宇宙少女多荣 签售饭拍 180401  
+https://youtu.be/QJaJL-yMjDw
 
 https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=21524182
 
-https://www.youtube.com/watch?v=CIheMKYJlxE Exy by vendenge
 
-https://www.youtube.com/watch?v=7GnwC00TTSg Dreams Come True by vendenge
-
-https://www.youtube.com/watch?v=wAnl6mCAM4s yeonjung by day ful
-
-https://www.youtube.com/watch?v=LYoJiZMhIlg Seola by Everlasting Snow
 
 
 # 宇宙少女苞娜《你的管家》7th拍摄花絮[20180804]
@@ -164,15 +159,24 @@ https://www.instagram.com/p/Bl9PckRASK0/  图片
 
 https://m.vlive.tv/video/42770
 
-http://globalv.p.naverrmc.edgesuite.net/global/read/global_v_2017_10_19_4/485b8330-b4b0-11e7-a53b-0000000041ed.mp4?__gda__=1533199344_3ad39fd52548564f86e9b2f4dce4dc27
-
 # 
+
+https://youtu.be/eK-bYDK-gcc Dreams Come True 完整版 1080P 60fps
 
 https://www.youtube.com/watch?v=DQRSmJFvbHk Dreams Come True 完整版1080P
 
 https://www.youtube.com/watch?v=8C1b2Fi9uF4 Ending by supershinstudio
 
 # 
+
+https://www.youtube.com/watch?v=CIheMKYJlxE Exy by vendenge
+
+https://www.youtube.com/watch?v=7GnwC00TTSg Dreams Come True by vendenge
+
+https://www.youtube.com/watch?v=wAnl6mCAM4s yeonjung by day ful
+
+https://www.youtube.com/watch?v=LYoJiZMhIlg Seola by Everlasting Snow
+
 https://www.youtube.com/watch?v=EUxQIiuuLuk Yeoreum by vendenge
 
 https://www.youtube.com/watch?v=RRiPMFpSa8I Yeoreum by vendenge
@@ -229,19 +233,11 @@ PRODUCE48 [풀버전] 하트크러쉬ㅣ블랙핑크 ♬뚜두뚜두 @포지션 
 
 https://www.youtube.com/watch?v=U-1IAaHV8Ic
 
-https://srv85.clipconverter.cc/download/0q%2BYe4iAtZewZ2tunZibaWpk5KWmqXFt4pSYa2ximGJmZWy0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%ED%92%80%EB%B2%84%EC%A0%84%5D%20%ED%95%98%ED%8A%B8%ED%81%AC%EB%9F%AC%EC%89%AC%E3%85%A3%EB%B8%94%EB%9E%99%ED%95%91%ED%81%AC%20%E2%99%AC%EB%9A%9C%EB%91%90%EB%9A%9C%EB%91%90%20%40%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180727%20EP.7.mp4
-
-https://s44.123apps.com/vcutter/d/s44PcdPIyJQ.flv
-
 # 【Produce48】【完整版】 Wanna One ♬Energetic @位置评价 180727 EP.7
 
 PRODUCE48 [풀버전] 에너자이저ㅣWanna One ♬Energetic @位置评价 180727 EP.7
 
 https://www.youtube.com/watch?v=xg4JKao5RLA
-
-https://srv84.clipconverter.cc/download/2rWqprJm4auwZ2tunZmUcWln5KWmqXFs4pSYa2xhoWtrZnC0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%ED%92%80%EB%B2%84%EC%A0%84%5D%20%EC%97%90%EB%84%88%EC%9E%90%EC%9D%B4%EC%A0%80%E3%85%A3%EC%9B%8C%EB%84%88%EC%9B%90%20%E2%99%AC%EC%97%90%EB%84%88%EC%A0%9C%ED%8B%B1%20%40%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180727%20EP.7.mp4
-
-https://s38.123apps.com/vcutter/d/s38jH6vcMqh.flv
 
 # 【Produce48】【完整版】 In to youㅣAriana Grande ♬Side To Side @位置评价 180727 EP.7
 
@@ -249,20 +245,11 @@ PRODUCE48 [풀버전] In to youㅣAriana Grande ♬Side To Side @포지션 평�
 
 https://www.youtube.com/watch?v=cA0OGVc6m14
 
-https://srv77.clipconverter.cc/download/27WkgW53tmewZ2tunZmTbmxj5KWmqXBv4pSYa2xhoWlraG20qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%ED%92%80%EB%B2%84%EC%A0%84%5D%20In%20to%20you%E3%85%A3Ariana%20Grande%20%E2%99%ACSide%20To%20Side%20%40%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180727%20EP.7.mp4
-
-https://s41.123apps.com/vcutter/d/s418cHVGspM.flv
-
 # 【Produce48】【完整版】 Demi Lovato ♬Sorry Not Sorry @位置评价 180727 EP.7
 
 PRODUCE48 [풀버전] 1등 할게! 미안해U~ㅣDemi Lovato ♬Sorry Not Sorry @포지션 평가 180727 EP.7
 
 https://www.youtube.com/watch?v=U4WnJ9BAGBg
-
-https://srv75.clipconverter.cc/download/rNHPfoWCnWuwZ2tunZicaGpp5KWmqXBt4pSYa2xhoWpkZmm0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%ED%92%80%EB%B2%84%EC%A0%84%5D%201%EB%93%B1%20%ED%95%A0%EA%B2%8C%21%20%EB%AF%B8%EC%95%88%ED%95%B4U~%E3%85%A3Demi%20Lovato%20%E2%99%ACSorry%20Not%20Sorry%20%40%ED%8F%AC%EC%A7%80%EC%85%98%20%ED%8F%89%EA%B0%80%20180727%20EP.7.mp4
-
-https://s52.123apps.com/vcutter/d/s52ldInd7uY.flv
-
 
 # 宇宙少女苞娜《你的管家》E17-18 Cuts[合集][180801]
 https://www.youtube.com/watch?v=RYX2ZxzlewY&list=PL7d9SABxcP1KZGfc4kX8xhDOHYZBU5FmF
@@ -309,8 +296,6 @@ https://www.youtube.com/watch?v=Jjyc2tejPpU
 苞娜 Luda 恩熙 雪娥 程潇
 
 https://www.vlive.tv/video/82762?channelCode=F5F127
-
-http://globalv.p.naverrmc.edgesuite.net/global/read/navertv_2018_08_01_1365/ab1b25a2-9552-11e8-94fa-0000000049b9.mp4?__gda__=1533128409_2620731708330ef2cd3ca270083b923b
 
 ##
 # 宇宙少女2018 KMF 无限大梦想(Dream Comes True)表演舞台[20180801]
@@ -428,6 +413,8 @@ https://www.youtube.com/watch?v=EohcMddnVSc WJSN by ODS
 
 https://www.youtube.com/watch?v=__faiG9mHlo Seola MC by ODS
 
+# 宇宙少女KMF音乐节全场完整版[20180802]
+https://www.youtube.com/watch?v=OcFpjcDuluA
 
 # 宇宙少女KMF音乐节全场完整版[20180801]
 Korea Music Festival 2018 Live Stream
