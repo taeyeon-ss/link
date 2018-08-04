@@ -2,6 +2,8 @@
 
 宇宙少女多荣 签售 https://youtu.be/QJaJL-yMjDw
 
+https://member.bilibili.com/v2#/upload/video/frame?type=edit&aid=21524182
+
 https://www.youtube.com/watch?v=CIheMKYJlxE Exy by vendenge
 
 https://www.youtube.com/watch?v=7GnwC00TTSg Dreams Come True by vendenge
