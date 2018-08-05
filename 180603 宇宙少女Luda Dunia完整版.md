@@ -1,5 +1,23 @@
 
 
+# 180805 PRODUCE48 이채연 경연출근 4k직캠Fancam MIX_11
+https://www.youtube.com/watch?v=IE1eN5QEmM0  
+
+180805 PRODUCE48 이가은,허윤진 경연출근 4k 직캠Fancam
+https://www.youtube.com/watch?v=4Cm3IYeXeDQ
+
+180805 PRODUCE48 김시현,왕이런,최예나 경연출근 4k 직캠Fancam
+https://www.youtube.com/watch?v=YOveKDqCy7o
+
+https://www.youtube.com/watch?v=s6DRcU43D8s
+
+https://www.youtube.com/watch?v=n81B7llt6wM
+
+https://www.youtube.com/watch?v=LJfnPm2KWBk
+
+# [liveen TV] 이가은-허윤진-강혜원-박해윤-나고은, 콘셉트 평가 녹화 출근길 (PRODUCE48)
+https://www.youtube.com/watch?v=M2i0aToe_ew
+
 # Luda KBO 180610 180614
 https://twitter.com/DaisyAvenue306/status/1006515643321995264
 
