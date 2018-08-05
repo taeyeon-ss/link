@@ -1,5 +1,8 @@
 
 
+# Luda KBO 180610 180614
+https://twitter.com/DaisyAvenue306/status/1006515643321995264
+
 # 【Produce48】【合集】第三次比赛上班路 韩国仁川三山世界体育馆 饭拍 180805
 
 韩国仁川三山世界体育馆(Samsan World Gymnasium)
@@ -42,6 +45,40 @@ https://twitter.com/yinreon/status/1025974408991531008 怡人 崔艺娜 金诗�
 https://twitter.com/reason_2y/status/1025873587666702336 姜惠元
 
 https://twitter.com/wonyoungpics/status/1025878909831835651 张元英 安宥真
+
+https://twitter.com/mintskmt/status/1025875463212683264
+
+https://twitter.com/mintskmt/status/1025873953158361089
+
+https://twitter.com/mintskmt/status/1025873340773199873
+
+https://twitter.com/1014_109/status/1025892591521345536
+
+https://twitter.com/WY_YJ_/status/1025876965272649728  张元英
+
+https://twitter.com/WY_YJ_/status/1025883666088509440  张元英
+
+https://twitter.com/WY_YJ_/status/1025911300759511040
+
+https://twitter.com/WY_YJ_/status/1025886342146707456
+
+https://twitter.com/WY_YJ_/status/1025885056420573185  
+
+https://twitter.com/WY_YJ_/status/1025879725472804864  
+
+https://twitter.com/WY_YJ_/status/1025879583726350336
+
+https://twitter.com/WY_YJ_/status/1025876965272649728
+
+https://twitter.com/WY_YJ_/status/1025873890503884800  
+
+https://twitter.com/lss38380/status/1025898971359670272  张元英
+
+https://twitter.com/HEROyuu_winkJH/status/1025957654034755586
+
+https://twitter.com/lss38380/status/1025901292546220032
+
+https://twitter.com/loveloveallall/status/1025934968201990145
 
 https://twitter.com/ryamy75/status/1025875201513287680 pic
 
@@ -92,9 +129,13 @@ https://twitter.com/janggyul3149/status/1025874859304267776
 
 https://twitter.com/janggyul3149/status/1025873741568339968
 
+# 苞娜 LED
+https://twitter.com/WJ_O8I9/status/1025960415862251520
 
 # 俞延静 生日饭制 180802
 Mix
+
+https://twitter.com/StanWJSN13/status/1025536431467294722 Elite
 
 # Luda Dunia 先公开
 
