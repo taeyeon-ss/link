@@ -152,8 +152,12 @@ https://twitter.com/janggyul3149/status/1025873741568339968
 # 苞娜 LED
 https://twitter.com/WJ_O8I9/status/1025960415862251520
 
-# 俞延静 生日饭制 180802
-Mix
+# 宇宙少女俞延静生日饭制[20180802]
+
+180803 20th Happy Yeonjung's Day Fanmade
+
+https://youtu.be/3-gr_sW-MGw
+
 
 https://twitter.com/StanWJSN13/status/1025536431467294722 Elite
 
