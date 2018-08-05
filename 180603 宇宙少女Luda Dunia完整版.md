@@ -8,13 +8,21 @@ https://www.twitch.tv/videos/293354979
 두니아 처음 만난 세계.E10.180805.720p-NEXT.mp4 (1,358.9M)
 magnet:?xt=urn:btih:dae6576f6521225343465b0b8bf1e54aea5dc5aa
 
+
+[TS] 180805 MBC 두니아 처음만난세계 E10-루다 Cut&풀본
+
+루다 컷 
+https://drive.google.com/a/llit.kr/uc?id=1XbwOXkivBppbrh-kkJIP3BbRZ9mvPWJF
+
+풀본 http://mgnet.me/drVG9Ge
+
+https://drive.google.com/a/llit.kr/uc?id=1C3QPZ_3MH2taMz3Z1a97OwqYoyFt_p3t
+
 1080i | 5.75GB 01:04:17
 
 http://sendanywhe.re/2598XQNR
 
 http://sendanywhe.re/Q40IFCOH
-
-
 
 720p | 1.46GB 01:04:17
 
