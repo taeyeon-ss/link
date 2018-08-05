@@ -1,5 +1,33 @@
 
 
+
+【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.10 完整版[20180805]
+
+두니아 처음 만난 세계.E10.180805.720p-NEXT.mp4 (1,358.9M)
+magnet:?xt=urn:btih:dae6576f6521225343465b0b8bf1e54aea5dc5aa
+
+1080i | 5.75GB 01:04:17
+
+http://sendanywhe.re/2598XQNR
+
+http://sendanywhe.re/Q40IFCOH
+
+
+
+720p | 1.46GB 01:04:17
+
+http://sendanywhe.re/P43PDBKJ
+
+http://sendanywhe.re/2EKLGXMS
+
+李露多 李露朵
+
+中字
+
+【Dunia】宇宙少女Luda《杜尼亚，初次见到的世界》EP.10 Cut[合集][20180805]
+
+
+
 # 180805 PRODUCE48 이채연 경연출근 4k직캠Fancam MIX_11
 https://www.youtube.com/watch?v=IE1eN5QEmM0  
 
