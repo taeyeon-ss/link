@@ -1,4 +1,98 @@
 
+
+# 【Produce48】【合集】第三次比赛上班路 韩国仁川三山世界体育馆 饭拍 180805
+
+韩国仁川三山世界体育馆(Samsan World Gymnasium)
+
+[ #왕인런 ] 180805 Wang Yireon @ Samsan World Gymnasium for 'PRODUCE 48' recording
+
+https://www.pscp.tv/w/1BdGYodweZvxX
+
+https://www.pscp.tv/w/1OwxWWrzkMQxQ
+
+# 180805 推特
+https://twitter.com/_kimfork
+
+https://twitter.com/reason_2y/status/1025875334330167296 vod
+
+https://twitter.com/reason_2y/status/1025877012357865473 vod
+
+https://twitter.com/reason_2y/status/1025875624970182657 vod
+
+https://twitter.com/reason_2y/status/1025882585421893632 vod
+
+https://twitter.com/reason_2y/status/1025881863259398145 vod
+
+https://twitter.com/reason_2y/status/1025880646529372161 vod
+
+https://twitter.com/reason_2y/status/1025880056944447488 vod
+
+https://twitter.com/reason_2y/status/1025878885299150848 vod
+
+https://twitter.com/reason_2y/status/1025877012357865473 vod zyy ayz
+
+https://twitter.com/reason_2y/status/1025875624970182657 ayz
+
+https://twitter.com/reason_2y/status/1025875334330167296 zyy ayz
+
+https://twitter.com/reason_2y/status/1025874210550206466 王怡人 崔艺娜 金诗炫
+
+https://twitter.com/yinreon/status/1025974408991531008 怡人 崔艺娜 金诗炫
+
+https://twitter.com/reason_2y/status/1025873587666702336 姜惠元
+
+https://twitter.com/wonyoungpics/status/1025878909831835651 张元英 安宥真
+
+https://twitter.com/ryamy75/status/1025875201513287680 pic
+
+# 180805 油管
+https://www.youtube.com/watch?v=KVtYDwDTxrI&list=PL7d9SABxcP1LWcZ5G4zqoGT3-c2mALzO7  stardailynews
+
+https://www.youtube.com/watch?v=HeqbohAJgEg&list=PL7d9SABxcP1L8J6fcUdLXDVN0BqMD797p  MIX
+
+https://www.youtube.com/watch?v=2bTvOCVXAlY&list=PL7d9SABxcP1IYIhc_Z8fL4CjEYv6e4esS  Chori
+
+https://www.youtube.com/watch?v=wbFG2C-ABs8&list=PL7d9SABxcP1KQzZPYdgTeoqMoLuZpu7sj  ODS
+
+https://www.youtube.com/watch?v=vfuQQCWALJA&list=PL7d9SABxcP1IUG70QI0cKl9CDNmb9IJFq  liveenTV
+
+https://www.youtube.com/watch?v=IYbPeudcSbo&list=PL7d9SABxcP1KJEp1EQ3ghHEXgqmT2Al4R  JJaGa!
+
+https://www.youtube.com/watch?v=TZ0ZNb9XkSA&list=PL7d9SABxcP1JSwqujEaohltlDPJSuPDbl  SNOWY DAY
+
+# tv naver
+https://tv.naver.com/v/3754822
+
+https://tv.naver.com/v/3754868
+
+https://tv.naver.com/v/3754928
+
+https://tv.naver.com/v/3754960
+
+https://tv.naver.com/search?query=%ED%94%84%EB%A1%9C%EB%93%80%EC%8A%A448&sort=date&liveSort=playcount&channelSort=rel&isTag=false
+
+# GIF
+https://twitter.com/janggyul3149/status/1025886751607250944
+
+https://twitter.com/janggyul3149/status/1025885826331201537
+
+https://twitter.com/janggyul3149/status/1025883873970814976
+
+https://twitter.com/janggyul3149/status/1025881769055141889
+
+https://twitter.com/janggyul3149/status/1025880937236586496
+
+https://twitter.com/janggyul3149/status/1025879770595115008
+
+https://twitter.com/janggyul3149/status/1025879186748071937
+
+https://twitter.com/janggyul3149/status/1025878964848316416
+
+https://twitter.com/janggyul3149/status/1025874859304267776
+
+https://twitter.com/janggyul3149/status/1025873741568339968
+
+
 # 俞延静 生日饭制 180802
 Mix
 
