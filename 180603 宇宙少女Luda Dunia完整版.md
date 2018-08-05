@@ -20,6 +20,18 @@ http://sendanywhe.re/P43PDBKJ
 
 http://sendanywhe.re/2EKLGXMS
 
+http://gall.dcinside.com/mgallery/board/view/?id=dunia&no=2413&page=1
+
+[TS] 180805 두니아 10회 루다 & 미주 컷본 + 풀본
+
+https://drive.google.com/file/d/1CP90ausIbsFGiB_RRDhuCY7wozpAzWmL/view?usp=sharing
+
+https://drive.google.com/file/d/1ajYqM8cjas_1h1ENonEG-L-jan_EhNUf/view?usp=sharing
+
+http://gall.dcinside.com/board/view/?id=baseball_new7&no=4365839
+
+http://search.dcinside.com/combine/q/180805.20.EB.91.90.EB.8B.88.EC.95.84
+
 李露多 李露朵
 
 中字
