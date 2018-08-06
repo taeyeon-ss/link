@@ -96,6 +96,8 @@ pscp tv online downloader
 # 180805 推特
 https://twitter.com/_kimfork
 
+https://twitter.com/haeyoonpick__/status/1026120429272879104
+
 https://twitter.com/reason_2y/status/1025875334330167296 vod
 
 https://twitter.com/reason_2y/status/1025877012357865473 vod
