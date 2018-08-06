@@ -441,6 +441,10 @@ https://www.youtube.com/watch?v=8C1b2Fi9uF4 Ending by supershinstudio
 
 # 
 
+https://www.youtube.com/watch?v=7kZj7SokuKc Seola MC by TheGsd
+
+https://www.youtube.com/watch?v=JpW2SxvEbHE Dreams Come True by TheGsd
+
 https://www.youtube.com/watch?v=CIheMKYJlxE Exy by vendenge
 
 https://www.youtube.com/watch?v=7GnwC00TTSg Dreams Come True by vendenge
