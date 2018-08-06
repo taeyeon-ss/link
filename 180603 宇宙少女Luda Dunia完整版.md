@@ -421,6 +421,8 @@ https://www.youtube.com/watch?v=cA0OGVc6m14
 # 宇宙少女苞娜生日应援LED[20180802]
 https://www.instagram.com/p/Bl9n86iBwM5/?taken-by=fannicead  视频
 
+https://twitter.com/DoitDayomi/status/1026450215937564673
+
 https://www.instagram.com/p/Bl9PckRASK0/  图片
 
 # [Replay] 2017 Korea Music Festival Backstage
