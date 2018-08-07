@@ -1,5 +1,10 @@
 
+# 【Produce48】 特别篇
+https://twitter.com/KaeunSupporter/status/1026765047358517248
 
+Today on August 7 at 10pm KST there is a 40 minute special episode called "Produce 48 special clip", link to Mnet schedule:
+
+http://www.mnet.com/tv/epg/mnet/20180807
 
 # 宇宙少女Luda《访问教师》准备课外辅导中[20180807]
 
