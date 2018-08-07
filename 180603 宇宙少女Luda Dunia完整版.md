@@ -1,4 +1,15 @@
 
+
+
+# 宇宙少女恩熙夏天 直播精选 随机游戏Ep.03[20180807]
+
+은서여름의 여름여름한 댄스🌴 (HOW TO DANCE WJSN’s Summer dance)
+
+https://www.vlive.tv/video/83714
+
+http://globalv.p.naverrmc.edgesuite.net/global/read/global_v_2018_08_07_261/60109637-9a49-11e8-85af-000000008ca5.mp4?__gda__=1533653580_9ac658db04ba3182f9c81ebb324a369e
+
+
 # 【Produce48】 特别篇
 https://twitter.com/KaeunSupporter/status/1026765047358517248
 
