@@ -1,4 +1,20 @@
 
+
+
+# 宇宙少女Luda《访问教师》准备课外辅导中[20180807]
+
+https://www.instagram.com/p/BmLSf8zHEza/
+
+180807 宇宙少女Luda《访问教师》准备课外辅导中 Mnet IG短视频
+
+@mnet.tutor [#공스타그램] 루다 선생님은 과외 준비 중
+.
+#Mnet #방문교사 8/23 (목) 저녁 8:30 첫방송!!
+.
+#우주소녀 #루다 @wjsn_cosmic @e_lludda 
+#공스타그램 #공부스타그램 #공스타 #공부 #공부흔적 #Studygram #StudyWithMe
+
+
 #  【Produce48】【单独速報】 <PRODUCE48>现顺位状況 (8/7午前10时基准) 180807
 
 [ENG sub] PRODUCE48 [단독 속보] 프로듀스48 현 순위 상황 (8/7 오전 10시 기준) 180810 EP.9
