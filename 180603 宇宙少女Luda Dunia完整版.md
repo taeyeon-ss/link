@@ -1,4 +1,14 @@
 
+#  【Produce48】【单独速報】 <PRODUCE48>现顺位状況 (8/7午前10时基准) 180807
+
+[ENG sub] PRODUCE48 [단독 속보] 프로듀스48 현 순위 상황 (8/7 오전 10시 기준) 180810 EP.9
+
+https://youtu.be/rFUSUonvlHI
+
+https://srv66.clipconverter.cc/download/trfQa26a4nWwZ2tvmJOabW9o5KWmqW9u4pSYa2xmmmhpY2q0qc%2FMqHyf1qiZpa2d2A%3D%3D/PRODUCE48%20%5B%EB%8B%A8%EB%8F%85%20%EC%86%8D%EB%B3%B4%5D%20%ED%94%84%EB%A1%9C%EB%93%80%EC%8A%A448%20%ED%98%84%20%EC%88%9C%EC%9C%84%20%EC%83%81%ED%99%A9%20%288%2F7%20%EC%98%A4%EC%A0%84%2010%EC%8B%9C%20%EA%B8%B0%EC%A4%80%29%20180810%20EP.9.mp4
+
+https://s57.123apps.com/vcutter/d/s57DZaZ907I.flv
+
 # 【安宥真】第三次比赛上班路 仁川三山世界体育馆 饭拍合集 180805
 
 # 宇宙少女恩熙 随机游戏Ep.03[20180806]
