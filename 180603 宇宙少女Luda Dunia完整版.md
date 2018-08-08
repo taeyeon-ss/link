@@ -1,9 +1,16 @@
 
 
+[TS] 180808 코리아 뮤직 페스티벌 - 우주소녀 꿈꾸는 마음으로
+http://sendanywhe.re/3389WCOJ
+
 # 180808.코뮤페.#우주소녀(#WJSN) - 꿈꾸는 마음으로 1/2
 https://twitter.com/Shaytyen_5/status/1027142018638602240
 
 https://twitter.com/Shaytyen_5/status/1027142024925827072
+
+https://twitter.com/LEOPISCES0225/status/1027143492751900672
+
+https://twitter.com/LEOPISCES0225/status/1027143500481978368
 
 
 # 宇宙少女Exy雪娥点唱机EP.7[20180808]
