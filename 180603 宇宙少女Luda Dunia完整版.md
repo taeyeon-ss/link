@@ -1,5 +1,16 @@
 
 
+# [TS] 180808 당신의 하우스 헬퍼 E21, 22-보나 Cut&풀본
+
+보나 컷 http://sendanywhe.re/04N3MYKW 	2018.08.08 23:39:03 	삭제버튼
+우쥬쭈꾸미갤로그로 이동합니다. 	https://drive.google.com/a/llit.kr/uc?id=1FhxZUTK6BOWGDhlYra3u3llxNdTeBPsd 	2018.08.08 23:39:16 	삭제버튼
+우쥬쭈꾸미갤로그로 이동합니다. 	http://attach.mail.daum.net/bigfile/v1/urls/d/4NQILbsXgpwuOQkIkXuu16o7HTY/Fo2eyTFqqU7XiWcdf1Sb5Q 	2018.08.08 23:39:25 	삭제버튼
+우쥬쭈꾸미갤로그로 이동합니다. 	풀본 http://mgnet.me/dsqlfrV 	2018.08.08 23:39:43 	삭제버튼
+우쥬쭈꾸미갤로그로 이동합니다. 	http://sendanywhe.re/TY8EZXOB 	2018.08.08 23:39:52 	삭제버튼
+ 댓글돌이 	
+박원순 시장 "금천구서도 한달 살 것…옥탑방 고민,19일 발표" 		
+우쥬쭈꾸미갤로그로 이동합니다. 	https://drive.google.com/a/llit.kr/uc?id=1LjMQ1dQDw39Me3cfGcTJFWvwqmtC5BPn 
+
 # [TS] 180808 코리아 뮤직 페스티벌 - 우주소녀 Full Cut
 
 꿈꾸는 마음으로 https://drive.google.com/a/llit.kr/uc?id=1T7PJd83jzH_wHgEy43AT2KLnu7G6-lwy 	2018.08.09 01:53:12 	삭제버튼
