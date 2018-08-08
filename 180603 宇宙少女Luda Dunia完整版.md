@@ -1,4 +1,11 @@
 
+# 宇宙少女Exy雪娥点唱机EP.7[20180808]
+
+[엑시/설아] 엑떨의 우쥬크박스🎧 Ep.07
+
+https://www.vlive.tv/video/83798
+
+http://globalv.p.naverrmc.edgesuite.net/global/read/global_v_2018_08_08_120/73183722-9af2-11e8-85af-000000008ca5.mp4?__gda__=1533736071_3ec0b40fca406d5e5437d609ffc361af
 
 
 https://www.facebook.com/produce101/videos/701487206853939/  한초원 (CUBE)
