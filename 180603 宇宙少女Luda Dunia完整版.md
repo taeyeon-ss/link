@@ -1,5 +1,16 @@
 
 
+
+https://www.facebook.com/produce101/videos/701487206853939/  한초원 (CUBE)
+
+https://www.facebook.com/produce101/videos/701486723520654/  本田 仁美（AKB48）
+
+https://www.facebook.com/produce101/videos/701486003520726/  竹内 美宥(AKB48)
+
+https://www.facebook.com/produce101/videos/701484303520896/  矢吹 奈子(HKT48) 
+
+https://www.facebook.com/produce101/videos/701482920187701/ 안유진 (STARSHIP)
+
 # 宇宙少女苞娜《你的管家》E21-22预告[20180808]
 https://twitter.com/MyloveKBS/status/1027053036571582464
 
