@@ -1,5 +1,21 @@
 
 
+# [TS] 180808 코리아 뮤직 페스티벌 - 우주소녀 Full Cut
+
+꿈꾸는 마음으로 https://drive.google.com/a/llit.kr/uc?id=1T7PJd83jzH_wHgEy43AT2KLnu7G6-lwy 	2018.08.09 01:53:12 	삭제버튼
+우쥬쭈꾸미갤로그로 이동합니다. 	http://nbigfile.mail.naver.com/bigfileupload/download?fid=8Xn/aH39WrUXFAuwHqujKxudHqUmKx2maAglKAuqFAK9Hqu9KqMdKx2XaxvjFoFCpAiCM6MqF4kvaAJopApSp4UwK4t/pAJvFoF4MoU= 	2018.08.09 01:53:25 	삭제버튼
+우쥬쭈꾸미갤로그로 이동합니다. 	http://sendanywhe.re/M09B6EPI 	2018.08.09 01:53:37 	삭제버튼
+우쥬쭈꾸미갤로그로 이동합니다. 	엔딩 https://drive.google.com/a/llit.kr/uc?id=12I9gEC5JqvjZkay-fLN6tJRwYXhf9Rba 	2018.08.09 01:53:59 	삭제버튼
+우쥬쭈꾸미갤로그로 이동합니다. 	http://attach.mail.daum.net/bigfile/v1/urls/d/939JqkbPhiapi75cUH2gAtFLJYc/sKUyhFZpqw8HnUGDaXQB-w 	2018.08.09 01:54:12 	삭제버튼
+ 댓글돌이 	
+'서울시 2배 규모' 캘리포니아 산불, 우주에서도 포착돼 		
+우쥬쭈꾸미갤로그로 이동합니다. 	http://sendanywhe.re/0K357KRE 	2018.08.09 01:54:21 	삭제버튼
+우쥬쭈꾸미갤로그로 이동합니다. 	풀컷 https://drive.google.com/a/llit.kr/uc?id=1-lJdIy7ZzMM8K3OC7zUSjaHN7Iy_7RSm 	2018.08.09 01:54:40 	삭제버튼
+우쥬쭈꾸미갤로그로 이동합니다. 	http://nbigfile.mail.naver.com/bigfileupload/download?fid=8XY/aH39WrUXFAuwHqUjKxudHqUmKx2maAglKAuqFAK9Hqu9KqMdKx2XaxvjF4tdMqF0a6udaAivFop0FrkoKqv9KAp0KxC4M6UmKrU= 	2018.08.09 01:54:49 	삭제버튼
+우쥬쭈꾸미갤로그로 이동합니다. 	http://sendanywhe.re/623C1UXA 
+
+#
+
 [TS] 180808 코리아 뮤직 페스티벌 - 우주소녀 꿈꾸는 마음으로
 http://sendanywhe.re/3389WCOJ
 
