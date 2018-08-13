@@ -12,6 +12,12 @@ https://drive.google.com/file/d/1Ops7vZH7bFlOOTEMWomEb0xYz7BW9hfE/view?usp=shari
 # [Working!!]MediaHuma_YouTube_Downloader_v3.9.8.25_(0806).zip
 https://drive.google.com/file/d/19IO_AacKCxJH2CVuxxXdd2cp6-anoSfX/view?usp=sharing
 
+# [Working!]Gilisoft_WatermarkRemover_portable // 180813
+https://drive.google.com/file/d/1_4o9ChoH8VG9djqoxP7vy_4QXBf1L1q8/view?usp=sharing
+
+# SolveigMM.Video.Splitter.6.1.1808.03.Portable // 180813
+https://drive.google.com/file/d/1NJe3XYwYt2YpUx9YRCYWVPlzD9Xp4Syz/view?usp=sharing
+
 # [Working!]SolveigMM.Video.Splitter.6.1.1807.20.Portable
 https://drive.google.com/file/d/1feoEinp2CmbetlysFLs6K6WNr-nsS8lm/view?usp=sharing
 
